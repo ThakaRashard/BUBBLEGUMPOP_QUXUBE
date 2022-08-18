@@ -7,6 +7,77 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 
 
 ## DEAR_QUXUBE ##
+
+
+<center>
+<h1> Astronomy Picture of the Day </h1>
+<p>
+
+<a href="archivepix.html">Discover the cosmos!</a>
+Each day a different image or photograph of our fascinating universe is
+featured, along with a brief explanation written by a professional astronomer.
+<p>
+
+2019 January 26
+<br> 
+
+<a href="image/1901/LOmbradellaTerraFinazzi.jpg">
+<IMG SRC="image/1901/LOmbradellaTerraFinazzi1024.jpg"
+alt="See Explanation.  Clicking on the picture will download
+the highest resolution version available." style="max-width:100%"></a>
+
+</center>
+
+<center>
+<b> The Umbra of Earth </b> <br>
+
+<b> Image Credit &
+<a href="lib/about_apod.html#srapply">Copyright</a>: </b>
+
+<a href="mailto: a [dot] finazzi [dot] astronomy [at] sonic [dot] it">Antonio
+Finazzi</a>
+
+
+
+<p> 
+
+<b> Explanation: </b> 
+
+The dark, inner shadow of planet Earth
+is called <a href="ap060909.html">the umbra</a>.
+
+Shaped like a cone extending into space, it has a
+circular cross section most easily seen during a
+<a href="https://solarsystem.nasa.gov/moons/earths-moon/lunar-eclipses/">lunar
+eclipse</a>.
+
+For example, on January 21 the <a href="ap080220.html">Full Moon
+slid</a> across the northern half of Earth's umbral shadow,
+<a href="ap190125.html">entertaining</a>
+moonwatchers around much of the planet.
+
+In the total phase of the eclipse, the Moon was completely within
+the umbra for 63 minutes.
+
+Recorded under clear, dark skies from the
+hills near Chiuduno, Italy this composite
+eclipse image uses <a href="ap070901.html">successive</a>
+pictures from totality (center) and partial phases
+to trace out a large part of the
+umbra's <a href="ap080820.html">curved edge</a>.
+
+Reflecting sunlight scattered by the atmosphere into Earth's shadow,
+the lunar surface appears reddened during totality.
+
+But close to the umbra's edge, the limb of the eclipsed Moon shows a
+distinct blue hue.
+
+<a href="ap151003.html">The blue eclipsed</a>
+moonlight originates as rays of sunlight
+pass through layers high in the upper stratosphere,
+colored by ozone that scatters red light and transmits blue.
+</center>
+
 <iframe width="100%" height="333" src="https://www.youtube.com/embed/tY2KCl79Do8" title="THE LITTLE SHOP OF HORRORS (1960) Official Trailer" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe width="100%" height="333" src="https://www.youtube.com/embed/jPZVjxWMLpo" title="Little Shop of Horrors Intro w/lyrics" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe width="100%" height="350" src="https://www.youtube.com/embed/Z1l5PFs2eTc" title="House Party - Dance off - long version - Ain't my type of hype" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
