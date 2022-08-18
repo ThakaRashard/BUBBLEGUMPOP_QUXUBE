@@ -12,6 +12,7 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<iframe width="100%" height="400" src="https://www.youtube.com/embed/y8OtzJtp-EM" title="Immigrant Song (Remaster)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <img src="https://www.motorcities.org/images/SOTW_4-6-2022/1967_Plymouth_Barracuda_Chrysler_Archives_1.jpg">
 
 [Heart - Barracuda](https://www.youtube.com/watch?v=VdOkQ6THDVw)
@@ -29,6 +30,27 @@ It was an era when the Ford Mustang was making sales history at Ford Motor Compa
 <img src="https://static.wikia.nocookie.net/logopedia/images/7/7c/Visual_Studio_Code_1.17_icon_Insider.svg/revision/latest?cb=20200629112812">
 
 [Heart - Barracuda](https://www.youtube.com/watch?v=VdOkQ6THDVw)
+
+
+
+<div class="twoPanelSpread">
+  <div class="row">
+    <div class="panelColumn">
+      <div class="leftColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://www.motorcities.org/images/SOTW_4-6-2022/967_Plymouth_Barracuda_advertising_Chrysler_Archives_RESIZED_2.jpg"></a>
+        </div>
+    </div>
+    <div class="panelColumn">
+      <div class="rightColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://www.motorcities.org/images/SOTW_4-6-2022/1968_Plymouth_Barracuda_muscle_car_ad_Chrysler_Archives_3.jpg"></a>
+         </div>
+    </div>
+  </div>
+</div>
+<img src="https://www.motorcities.org/images/SOTW_4-6-2022/1968_Plymouth_Barracuda_ad_Chrysler_Archives_RESIZED_4.jpg">
+<img src="https://www.motorcities.org/images/SOTW_4-6-2022/1969_Plymouth_Barracuda_Mod_Top_Hemminga_6.jpg">
 
 <div class="twoPanelSpread">
   <div class="row">
