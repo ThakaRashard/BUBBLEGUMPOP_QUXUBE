@@ -107,7 +107,8 @@ https://www.youtube.com/user/MiamiBassHistory
     <li>4 # UNiVERSALCONTACKT####################################</li>
  </ul>
 </div>     
-<a href="https://thakarashard.github.io"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Git-logo.svg/2560px-Git-logo.svg.png" alt="##BUBBLEGUMPOP_iS_POWERED_BY_GiT_GOOGLE_DANCE411_and_A_WHOLE_LOTTA_LOVE##AWS_AS_WELL"></a>
+
+<a href="https://thakarashard.github.io"><img style="padding:10px;"> src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Git-logo.svg/2560px-Git-logo.svg.png" alt="##BUBBLEGUMPOP_iS_POWERED_BY_GiT_GOOGLE_DANCE411_and_A_WHOLE_LOTTA_LOVE##AWS_AS_WELL"></a>
 ## DEAR_QUXUBE ##
 <iframe width="100%" height="330" src="https://www.youtube.com/embed/dOWtNx16yYY" title="The Jets - Youve Got It All 1986" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
