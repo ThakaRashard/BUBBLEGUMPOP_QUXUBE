@@ -12,7 +12,23 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<img src="https://www.motorcities.org/images/SOTW_4-6-2022/1967_Plymouth_Barracuda_Chrysler_Archives_1.jpg">
+
+[Heart - Barracuda](https://www.youtube.com/watch?v=VdOkQ6THDVw)
 [The Rolling Stones - Jumpin’ Jack Flash](https://www.youtube.com/watch?v=G3dFpQzu54w)
+
+
+<h2>The 1967-1969 Plymouth Barracudas Were Out to Win You Over</h2>
+<h3>By Robert Tate, Automotive Historian and Researcher</h3>
+<code>Images Courtesy of Chrysler Archives, Hemmings, Ray Barton/Cars Online
+Published 4.6.2022</code>
+The 1967-1969 Plymouth Barracuda models were great looking automobile designs. Some automotive historians said at the time that the newly designed Barracuda had an Italian-influenced look that many really liked and enjoyed driving.
+
+It was an era when the Ford Mustang was making sales history at Ford Motor Company. Chrysler was looking to introduce a car to compete with the Mustang...[ReadMore](https://www.motorcities.org/story-of-the-week/2022/the-1967-1969-plymouth-barracudas-were-out-to-win-you-over)
+
+<img src="https://static.wikia.nocookie.net/logopedia/images/7/7c/Visual_Studio_Code_1.17_icon_Insider.svg/revision/latest?cb=20200629112812">
+
+[Heart - Barracuda](https://www.youtube.com/watch?v=VdOkQ6THDVw)
 
 <div class="twoPanelSpread">
   <div class="row">
