@@ -12,7 +12,20 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<div class="flex-container">
 
+  <div class="item1">  <a href="https://www.youtube.com/watch?v=enJgAKUV9H0" ><img src="https://upload.wikimedia.org/wikipedia/commons/d/d0/Reverie_1897.jpg"></a></div>
+  <div class="item2">  <a href="https://www.youtube.com/watch?v=enJgAKUV9H0" ><img src="https://upload.wikimedia.org/wikipedia/commons/d/d0/Reverie_1897.jpg"></a></div>
+  <div class="item3">  <a href="https://www.youtube.com/watch?v=enJgAKUV9H0" ><img src="https://upload.wikimedia.org/wikipedia/commons/d/d0/Reverie_1897.jpg"></a></div>
+</div>
+
+<div class="flex-container">
+  <div class="item1"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SARTU_BROWN_YELLA.gif" /></div>
+  <div class="item2"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SARTU_BROWN_YELLA.gif" /></div>
+  <div class="item3"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SARTU_BROWN_YELLA.gif" /></div>
+</div>
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/469196346&color=%23666264&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/ravenmarchingband" title="Laura Veirs" target="_blank" style="color: #cccccc; text-decoration: none;">Laura Veirs</a> · <a href="https://soundcloud.com/ravenmarchingband/lake-swimming" title="Lake Swimming" target="_blank" style="color: #cccccc; text-decoration: none;">Lake Swimming</a></div>
 
 
  <a href="https://www.youtube.com/watch?v=u2nwZtlPvkk&list=PLJ6gtl1sX46ruL5ZAFukDifpKXd0t7jA8" ><img src="https://i.discogs.com/t42ahrCuj9301YElSzMTziCea_002-8xr6p3Z4MgmfU/rs:fit/g:sm/q:90/h:598/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE2Mjk0/ODQtMTUyNTkwMTYz/Mi0xNDI4LmpwZWc.jpeg"></a>
