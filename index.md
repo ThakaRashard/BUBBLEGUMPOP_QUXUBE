@@ -7,6 +7,8 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 
 
 ## DEAR_QUXUBE ##
+<iframe width="100%" height="350" src="https://www.youtube.com/embed/Z1l5PFs2eTc" title="House Party - Dance off - long version - Ain't my type of hype" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## CRUiSiN_CALi_SOUNDS_4_PCH_US1::DATE_IDEAS 
 <a href="https://www.youtube.com/watch?v=6npSwAc2rWw"> Feel It Boy · Beenie Man · Janet Jackson </a>
   <a href="https://www.youtube.com/watch?v=j7QWJXXqiOc">Super Cat--Nuff Man A Dead (GENERALLY_KNOWN_MiX)</a>
