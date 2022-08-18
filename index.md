@@ -9,6 +9,7 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 
 <iframe width="100%" height="539" src="https://www.youtube.com/embed/n7Wjkg7UpK8" title="The Vision Of Rassan Medley: Dedication / Roll On Kirk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+[WAR- SLIPPIN INTO DARKNESS](https://www.youtube.com/watch?v=RFSWW4O6QNM)
 [Eric Burdon - Declares War (1970 Full Album)](https://www.youtube.com/watch?v=OhuX8fFHP6I)
 [The Jones Girls - Nights Over Egypt ](https://www.youtube.com/watch?v=pzxwZ6wjDAM) 
 [Remind Me · Patrice Rushen ·Straight From The Heart](https://www.youtube.com/watch?v=SOPp6EgpDrg) 
