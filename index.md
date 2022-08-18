@@ -12,6 +12,10 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<video width="50%" controls>
+    <source src="https://github.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/raw/master/assets/images/video/quxube_own_wildinOUT_myVerse.mp4" type="video/mp4" />
+</video>
+
 [17 HTML5 Video Example](https://niemvuilaptrinh.medium.com/17-html5-video-example-a10f00607b41)
 [WAR - Spill The Wine](https://www.youtube.com/watch?v=uE1NSGUkhQI)
 
