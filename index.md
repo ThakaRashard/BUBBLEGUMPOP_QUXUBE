@@ -18,6 +18,7 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
 
 <iframe width="100%" height="500" src="https://www.youtube.com/embed/n7Wjkg7UpK8" title="The Vision Of Rassan Medley: Dedication / Roll On Kirk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+[Bombay Bicycle Club ::Your Eyes](https://www.youtube.com/watch?v=0_Wsb92tT1M)
 [Bonobo - Linked](https://www.youtube.com/watch?v=0W-a11Tdk7Y)
 [WAR- SLIPPIN INTO DARKNESS](https://www.youtube.com/watch?v=RFSWW4O6QNM)
 [Eric Burdon - Declares War (1970 Full Album)](https://www.youtube.com/watch?v=OhuX8fFHP6I)
@@ -90,7 +91,7 @@ https://www.youtube.com/user/MiamiBassHistory
 ## DEAR_QUXUBE ##
 <iframe width="100%" height="330" src="https://www.youtube.com/embed/dOWtNx16yYY" title="The Jets - Youve Got It All 1986" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-<center>
+
 <h1> Astronomy Picture of the Day </h1>
 <p>
 
@@ -107,9 +108,7 @@ featured, along with a brief explanation written by a professional astronomer.
 alt="See Explanation.  Clicking on the picture will download
 the highest resolution version available." style="max-width:100%"></a>
 
-</center>
 
-<center>
 <b> The Umbra of Earth </b> <br>
 
 <b> Image Credit &
@@ -157,7 +156,7 @@ distinct blue hue.
 moonlight originates as rays of sunlight
 pass through layers high in the upper stratosphere,
 colored by ozone that scatters red light and transmits blue.
-</center>
+
 
 <iframe width="100%" height="333" src="https://www.youtube.com/embed/tY2KCl79Do8" title="THE LITTLE SHOP OF HORRORS (1960) Official Trailer" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe width="100%" height="333" src="https://www.youtube.com/embed/jPZVjxWMLpo" title="Little Shop of Horrors Intro w/lyrics" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
@@ -181,8 +180,11 @@ colored by ozone that scatters red light and transmits blue.
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1322630917&color=%236c6c6c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/megan-thee-stallion" title="Megan Thee Stallion" target="_blank" style="color: #cccccc; text-decoration: none;">Megan Thee Stallion</a> · <a href="https://soundcloud.com/megan-thee-stallion/ungrateful-feat-key-glock" title="Ungrateful (feat. Key Glock)" target="_blank" style="color: #cccccc; text-decoration: none;">Ungrateful (feat. Key Glock)</a></div>
 <div class="expandingGallery"><img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/135011431_1824376414390674_516658343576780341_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=730e14&_nc_ohc=QyHtisWkmKgAX-fNcur&_nc_ht=scontent-lax3-2.xx&oh=00_AT8dKR2-dQghB1fmut2lwCiwTKhpdR3ZaJbDrvXapw81QA&oe=6322DD45" /><img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5cfc53f879eeec391e7a6730/vsco5cfc53f98b1fb.jpg" /><img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/134741910_1824376361057346_5760762196412101977_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=730e14&_nc_ohc=5I1Uppa3E8EAX-XA8qW&tn=LlHy2Qv6m3e-7RU1&_nc_ht=scontent-lax3-1.xx&oh=00_AT-0Bz95SjKPZ10mvaSbTfTccnaSTGBjxG_JfFZTcU6S_g&oe=6321A087" /><img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5cf3623a82fdb56e8b3b868d/vsco5cf3623bd9721.jpg" /><img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5fc4bb251d78313c14000007/vsco5fc4bb27bbd2e.jpg" /></div>
 
+<hr>
 
-## YOUNG GUERILLERO RECENTLY IN HIDING SPEAKS TO HIS FIRST CIVILIAN LADY, HAVANA, CUBA, JANUARY 1, 1959 - from our story '“Not a Bed of Roses” – Burt Glinn’s Photos of the Cuban Revolution (1959)
+## YOUNG GUERILLERO RECENTLY IN HIDING SPEAKS TO HIS FIRST CIVILIAN LADY, HAVANA, CUBA, 1-1-59 
+## from '“Not a Bed of Roses” – Burt Glinn’s Photos of the Cuban Revolution (1959)
+
 On New Year’s Eve 1958, young Magnum photographer Burt Glinn was celebrating at a black tie party in New York. All the talk that evening was of corrupt Cuban dictator Fulgencio Batista, rumoured to be ready to flee for his life from Havana and said to have already backed his army trucks up to the treasury. Glinn borrowed $400 from Magnum president Cornell Capa, grabbed his camera gear, raced to La Guardia just in time to make the last flight to Miami. He arrived just after dawn in Havana, Batista had fled, Fidel was still hundreds of miles away, nobody knew where, Che Guevara was on his way to Havana and nobody seemed to be in charge. As Glinn said “you just can’t hail a taxi and ask the cabbie to take you to the revolution”...[ReadMore](https://flashbak.com/see-the-cuban-revolution-unfold-in-burt-glinns-photos-1959-46574/)
 
 <div class="twoPanelSpread">
@@ -201,7 +203,7 @@ On New Year’s Eve 1958, young Magnum photographer Burt Glinn was celebrating a
 </div>
 <img src="https://flashbak.com/wp-content/uploads/2015/11/Young-22guerillero22-recently-in-hiding-speaks-to-his-first-civilian-lady-Havana-Cuba-January-1-1959.jpg">
 
-[Iran in the 1980s - Jean Gaumy](https://www.magnumphotos.com/newsroom/jean-gaumy-iran/)
+
 <img src="https://content.magnumphotos.com/wp-content/uploads/2016/05/cortex/par13185-teaser-story-big.jpg">
 <img src="https://content.magnumphotos.com/wp-content/uploads/2018/04/cortex/par63-teaser-story-big.jpg">
 <img src="https://pbs.twimg.com/media/Eb2_yDoXQAM-wp8?format=jpg&name=4096x4096">
@@ -217,7 +219,7 @@ On New Year’s Eve 1958, young Magnum photographer Burt Glinn was celebrating a
 
 ## DEAR_ACHEMELESH
 
- i did this tag with TAR_BLACK... Them nozzles is butta
+## i did this tag with TAR_BLACK... Them nozzles is butta
 
 <img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5fc455b1e1ebb64f08283be5/vsco5fc455b279aee.jpg" >
 
@@ -275,7 +277,6 @@ In the course Project 4, the reader will explore ways to creatively style hyperl
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/PAFAfhod9TU" title="H.E.R. - Damage (Official Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <img src="https://m.media-amazon.com/images/I/61pq7p9UUTL._SS500_.jpg" alt="##TEMS_iS_MUNA_TOO?!?!">
 
-[Free Mind](https://www.youtube.com/watch?v=tQiNQL-FEgU)
 
 
 ## Twin Flames - The Bubble Love Phase
@@ -333,10 +334,10 @@ The purpose of a soulmate is to teach us a karmic lesson, as laid out before we 
 <img src="https://im.vsco.co/aws-us-west-2/12f8b0/56497/5fc45a98e1ebb64f08283c25/vsco5fc45a9961d50.jpg" alt="##SKATE_THE_WORLD_BOOK::NATIONAL_GEOGRAPHIC" >
 <img src="https://assets.vogue.com/photos/5f9089a160138c079b7b38d5/16:9/w_1280,c_limit/00_social.jpg">
 <div class="pinupGallery">
-  <img class="pinupImage featured-pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
-  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
-  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
-  <img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
+<img class="pinupImage featured-pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
+<img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
+<img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
+<img class="pinupImage" src="https://mir-s3-cdn-cf.behance.net/project_modules/2800_opt_1/bd2087144034631.62851b973d0ff.jpg" alt="">
 </div>
 <img src="https://www.graffiti.org/atl/am71.jpg"> 
 <img src="https://www.graffiti.org/atl/anime4.jpg">
@@ -348,8 +349,8 @@ The purpose of a soulmate is to teach us a karmic lesson, as laid out before we 
 [The X-Ecutioners Built From Scratch 2002 Full Album](https://www.youtube.com/watch?v=VAyuCnX_bK8)
 [Xecutioners - Mad Flava (Album: X-Pressions)](https://www.youtube.com/watch?v=P9E_p538Slc)
 [Rob Swift - I'm Leaving](https://www.youtube.com/watch?v=fushfsow-tw)
-
-
+[Free Mind](https://www.youtube.com/watch?v=tQiNQL-FEgU)
+[Iran in the 1980s - Jean Gaumy](https://www.magnumphotos.com/newsroom/jean-gaumy-iran/)
 [Graffiti Session: APASHE](https://youtu.be/tGZ2_M-pf78)
 [Graffiti Session: TASTE](https://youtu.be/HOKoouQ6e-o)
 [Product Review: Chrome Test::BOMBiNG_SCiENCE](https://www.youtube.com/watch?v=HXSANKFHrFM)
@@ -370,14 +371,12 @@ The purpose of a soulmate is to teach us a karmic lesson, as laid out before we 
 [Kano - I'm Ready iiiiiiiii 1980](https://youtu.be/_LvTpjK-MEY) 
 [BMX_BEGiNNERS_MANUAL](http://www.learnbmxracing.com/includes/bmx-beginner-manual.pdf)
 [LEARN_BMX_RACiNG](http://www.learnbmxracing.com/)
-<img src="http://www.learnbmxracing.com/images/logo.svg" >
-
 [LEARN_BMX](https://www.learnbmx.com/)
 [History of BMX Bikes & Tracks](https://www.youtube.com/watch?v=r4efZAEyZ7o)
 [KKDA - Tom Joyner](https://www.youtube.com/watch?v=TCUxGoexjQw)
 [TOM_JOYNER_retired_DJ_STUDY](https://www.youtube.com/watch?v=kzICmAU-kPk)
 [GT Performer BMX ReSToRE!!](https://youtu.be/BQ_esbBSsgA)
-
+<img src="http://www.learnbmxracing.com/images/logo.svg" >
 
 [Voyage (Chillwave - Synthwave - Retrowave Mix)](https://www.youtube.com/watch?v=r4J5nKy6dDw)
 ### Check_Out_This HOME::MiXTAPE::
