@@ -22,17 +22,10 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 [SWV – You're The One Genre: Funk / Soul Style: RnB/Swing, Hip Hop Year: 1996](https://www.youtube.com/watch?v=Ua4fg2FQ6w8) 
 [BRANDY::Sittin' Up In My Room from Waiting to Exhale - Original SoundtracK](https://www.youtube.com/watch?v=DGgANpSjoas) 
 [702 - Steelo feat. Missy Elliott::1996](https://www.youtube.com/watch?v=LdvRwHhla6Q)
-
-
 [Beenie Man ‎– Jamaica Way Ft. Kelis (Beenie Man ‎– Art And Life, Virgin, 2000)](https://youtu.be/MNk1ymskIGI)
 [Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)](https://youtu.be/X1RgygADUpE)
-
-
 [Sean Paul - I'm Still In Love With You (Official Video)](https://www.youtube.com/watch?v=AQ4TW5Z8eu0) 
-
-
 [C'mon N' Ride It (The Train)](https://www.youtube.com/watch?v=3Awey7AbXT0)
-
 [52nd Street - Tell Me (Extended Vers.)](https://www.youtube.com/watch?v=3Ck25PGjlLc)
 [The S.O.S. Band - Just The Way You Like It, Mall_oF_GEORGiA_FEELiNGS](https://www.youtube.com/watch?v=4Nlr9vU0DfU)
 [SLAVE_STONE_JAM ~> Watching You](https://www.youtube.com/watch?v=xkI_yIhIk1c)
@@ -45,7 +38,7 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 
 
 ## DEAR_QUXUBE ##
-<iframe width="100%" height="330" src="https://www.youtube.com/embed/dOWtNx16yYY" title="The Jets - "You've Got It All" 1986" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="330" src="https://www.youtube.com/embed/dOWtNx16yYY" title="The Jets - Youve Got It All 1986" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <center>
 <h1> Astronomy Picture of the Day </h1>
