@@ -6,6 +6,44 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 
 
 
+
+[The Jones Girls - Nights Over Egypt ](https://www.youtube.com/watch?v=pzxwZ6wjDAM) 
+[Remind Me · Patrice Rushen ·Straight From The Heart](https://www.youtube.com/watch?v=SOPp6EgpDrg) 
+[Yearning For Your Love::By::THE_GAP_BAND](https://www.youtube.com/watch?v=afqzUbvi7D8) 
+[The Jones Girls::Who Can I Run To?::1979](https://www.youtube.com/watch?v=JRpKQb9J-nU) 
+[Keke Wyatt::NOTHiNG_iN_THiS_WORLD](https://www.youtube.com/watch?v=diEV1qC34Og) 
+[Stephanie Mills-Two Hearts Featuring Teddy Pendergrass](https://www.youtube.com/watch?v=uJ7HN1nNdbc) 
+[NEW_EDiTiON::Cool It Now (Official Video)](https://www.youtube.com/watch?v=RZUq6N7Gx1c) 
+[NEW_EDiTiON::Mr. Telephone Man](https://www.youtube.com/watch?v=GsWrlzjxbPY) 
+[BOBBY_BROWN::Every Little Step](https://www.youtube.com/watch?v=muDCggSpqpE) 🔥 
+[A1 Warm It Up (LP Version) Producer – Jermaine Dupri](https://www.youtube.com/watch?v=fwXfhQaBRZI) 🔥 
+[TLC - What About Your Friends (Official Video)](https://www.youtube.com/watch?v=92gHq1s6G-c) 
+[Another Bad Creation - Iesha (Official Music Video)](https://www.youtube.com/watch?v=ZDPIK7Fz_g4) 
+[SWV – You're The One Genre: Funk / Soul Style: RnB/Swing, Hip Hop Year: 1996](https://www.youtube.com/watch?v=Ua4fg2FQ6w8) 
+[BRANDY::Sittin' Up In My Room from Waiting to Exhale - Original SoundtracK](https://www.youtube.com/watch?v=DGgANpSjoas) 
+[702 - Steelo feat. Missy Elliott::1996](https://www.youtube.com/watch?v=LdvRwHhla6Q)
+
+
+[Beenie Man ‎– Jamaica Way Ft. Kelis (Beenie Man ‎– Art And Life, Virgin, 2000)](https://youtu.be/MNk1ymskIGI)
+[Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)](https://youtu.be/X1RgygADUpE)
+
+
+[Sean Paul - I'm Still In Love With You (Official Video)](https://www.youtube.com/watch?v=AQ4TW5Z8eu0) 
+
+
+[C'mon N' Ride It (The Train)](https://www.youtube.com/watch?v=3Awey7AbXT0)
+
+[52nd Street - Tell Me (Extended Vers.)](https://www.youtube.com/watch?v=3Ck25PGjlLc)
+[The S.O.S. Band - Just The Way You Like It, Mall_oF_GEORGiA_FEELiNGS](https://www.youtube.com/watch?v=4Nlr9vU0DfU)
+[SLAVE_STONE_JAM ~> Watching You](https://www.youtube.com/watch?v=xkI_yIhIk1c)
+[WEEKEND GIRL (Original Full-Length Album Version) - SOS Band](https://www.youtube.com/watch?v=8BvuSzxcE5o)
+[HANDSTYLER::FAUST](https://faustnewyork.tumblr.com/archive)
+[The S.O.S. Band - Tell Me If You Still Care](https://www.youtube.com/watch?v=GSsTyAVP5j0)
+[Feels So Real (Won't Let Go)](https://www.youtube.com/watch?v=GJroTM6cgDM)
+[The S.O.S. Band  No One's Gonna Love You 1984](https://www.youtube.com/watch?v=3DDeZVnK2E0)
+[S.O.S. Band- Even When You Sleep](https://www.youtube.com/watch?v=aX0wGKIgSZU)
+
+
 ## DEAR_QUXUBE ##
 <iframe width="100%" height="330" src="https://www.youtube.com/embed/dOWtNx16yYY" title="The Jets - "You've Got It All" 1986" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
@@ -100,42 +138,6 @@ colored by ozone that scatters red light and transmits blue.
     <a href="https://youtube.com/watch?v=YwSU0rcVTaE%20%20%3C" alt="Buju Banton - Wanna Be Loved (Official Music Video)">Buju Banton - Wanna Be Loved (Official Music Video)</a>
     <a href="https://youtu.be/6M-ppiL7EPM" alt="Beenie Man- Bookshelf- Bookshelf Riddim"> Beenie Man- Bookshelf- Bookshelf Riddim</a>
     <a alt="Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)" href="https://www.youtube.com/watch?v=X1RgygADUpE&t=5s">Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)</a>
-
-[The Jones Girls - Nights Over Egypt ](https://www.youtube.com/watch?v=pzxwZ6wjDAM) 
-[Remind Me · Patrice Rushen ·Straight From The Heart](https://www.youtube.com/watch?v=SOPp6EgpDrg) 
-[Yearning For Your Love::By::THE_GAP_BAND](https://www.youtube.com/watch?v=afqzUbvi7D8) 
-[The Jones Girls::Who Can I Run To?::1979](https://www.youtube.com/watch?v=JRpKQb9J-nU) 
-[Keke Wyatt::NOTHiNG_iN_THiS_WORLD](https://www.youtube.com/watch?v=diEV1qC34Og) 
-[Stephanie Mills-Two Hearts Featuring Teddy Pendergrass](https://www.youtube.com/watch?v=uJ7HN1nNdbc) 
-[NEW_EDiTiON::Cool It Now (Official Video)](https://www.youtube.com/watch?v=RZUq6N7Gx1c) 
-[NEW_EDiTiON::Mr. Telephone Man](https://www.youtube.com/watch?v=GsWrlzjxbPY) 
-[BOBBY_BROWN::Every Little Step](https://www.youtube.com/watch?v=muDCggSpqpE) 🔥 
-[A1 Warm It Up (LP Version) Producer – Jermaine Dupri](https://www.youtube.com/watch?v=fwXfhQaBRZI) 🔥 
-[TLC - What About Your Friends (Official Video)](https://www.youtube.com/watch?v=92gHq1s6G-c) 
-[Another Bad Creation - Iesha (Official Music Video)](https://www.youtube.com/watch?v=ZDPIK7Fz_g4) 
-[SWV – You're The One Genre: Funk / Soul Style: RnB/Swing, Hip Hop Year: 1996](https://www.youtube.com/watch?v=Ua4fg2FQ6w8) 
-[BRANDY::Sittin' Up In My Room from Waiting to Exhale - Original SoundtracK](https://www.youtube.com/watch?v=DGgANpSjoas) 
-[702 - Steelo feat. Missy Elliott::1996](https://www.youtube.com/watch?v=LdvRwHhla6Q)
-
-
-[Beenie Man ‎– Jamaica Way Ft. Kelis (Beenie Man ‎– Art And Life, Virgin, 2000)](https://youtu.be/MNk1ymskIGI)
-[Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)](https://youtu.be/X1RgygADUpE)
-
-
-[Sean Paul - I'm Still In Love With You (Official Video)](https://www.youtube.com/watch?v=AQ4TW5Z8eu0) 
-
-
-[C'mon N' Ride It (The Train)](https://www.youtube.com/watch?v=3Awey7AbXT0)
-
-[52nd Street - Tell Me (Extended Vers.)](https://www.youtube.com/watch?v=3Ck25PGjlLc)
-[The S.O.S. Band - Just The Way You Like It, Mall_oF_GEORGiA_FEELiNGS](https://www.youtube.com/watch?v=4Nlr9vU0DfU)
-[SLAVE_STONE_JAM ~> Watching You](https://www.youtube.com/watch?v=xkI_yIhIk1c)
-[WEEKEND GIRL (Original Full-Length Album Version) - SOS Band](https://www.youtube.com/watch?v=8BvuSzxcE5o)
-[HANDSTYLER::FAUST](https://faustnewyork.tumblr.com/archive)
-[The S.O.S. Band - Tell Me If You Still Care](https://www.youtube.com/watch?v=GSsTyAVP5j0)
-[Feels So Real (Won't Let Go)](https://www.youtube.com/watch?v=GJroTM6cgDM)
-[The S.O.S. Band  No One's Gonna Love You 1984](https://www.youtube.com/watch?v=3DDeZVnK2E0)
-[S.O.S. Band- Even When You Sleep](https://www.youtube.com/watch?v=aX0wGKIgSZU)
 
 <div class="sixpanel">
 
