@@ -12,6 +12,24 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<div class="twoPanelSpread">
+  <div class="row">
+    <div class="panelColumn">
+      <div class="leftColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://upload.wikimedia.org/wikipedia/commons/4/4d/Affiche_Chocolat_Id%C3%A9al.jpg"></a>
+        </div>
+    </div>
+    <div class="panelColumn">
+      <div class="rightColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://upload.wikimedia.org/wikipedia/commons/4/4d/Affiche_Chocolat_Id%C3%A9al.jpg"></a>
+         </div>
+    </div>
+  </div>
+</div>
+
+
 <video width="50%" controls>
     <source src="https://github.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/raw/master/assets/images/video/quxube_own_wildinOUT_myVerse.mp4" type="video/mp4" />
 </video>
