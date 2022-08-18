@@ -16,6 +16,7 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
     <source src="https://github.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/raw/master/assets/images/video/quxube_own_wildinOUT_myVerse.mp4" type="video/mp4" />
 </video>
 
+[Cream - Sunshine Of Your Love (HD)](https://www.youtube.com/watch?v=zt51rITH3EA)
 [17 HTML5 Video Example](https://niemvuilaptrinh.medium.com/17-html5-video-example-a10f00607b41)
 [WAR - Spill The Wine](https://www.youtube.com/watch?v=uE1NSGUkhQI)
 
