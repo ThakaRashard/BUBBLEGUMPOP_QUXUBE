@@ -11,7 +11,30 @@
 ## Hole To Another Universe
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
+<div class="twoPanelSpread">
+  <div class="row">
+    <div class="panelColumn">
+      <div class="leftColumn">
 
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://uploads6.wikiart.org/images/alphonse-mucha/soap-factory-of-bagnolet-1897.jpg"></a>
+        </div>
+    </div>
+    <div class="panelColumn">
+      <div class="rightColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://uploads6.wikiart.org/images/alphonse-mucha/soap-factory-of-bagnolet-1897.jpg"></a>
+         </div>
+    </div>
+  </div>
+</div>
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/345781926&color=%234c044c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/voyage_music" title="Voyage" target="_blank" style="color: #cccccc; text-decoration: none;">Voyage</a> · <a href="https://soundcloud.com/voyage_music/paradise-1" title="Paradise" target="_blank" style="color: #cccccc; text-decoration: none;">Paradise</a></div>
+
+
+
+
+
+<img src="https://commons.wikimedia.org/wiki/File:Alphonse_Mucha_-_Cycles_Perfecta.jpg">
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/269925599&color=%23749486&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/tycho" title="Tycho" target="_blank" style="color: #cccccc; text-decoration: none;">Tycho</a> · <a href="https://soundcloud.com/tycho/edc-sunrise" title="EDC Sunrise 2016" target="_blank" style="color: #cccccc; text-decoration: none;">EDC Sunrise 2016</a></div>
 <img src="https://upload.wikimedia.org/wikipedia/commons/d/d1/Alfons_Mucha_-_1896_-_Biscuits_Lef%C3%A8vre-Utile.jpg">
 
