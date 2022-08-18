@@ -12,6 +12,7 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+[17 HTML5 Video Example](https://niemvuilaptrinh.medium.com/17-html5-video-example-a10f00607b41)
 [WAR - Spill The Wine](https://www.youtube.com/watch?v=uE1NSGUkhQI)
 
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/screenshots/QUXUBE_IS_SCRAMBLED_AGAIN.PNG">
