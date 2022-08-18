@@ -146,13 +146,13 @@ colored by ozone that scatters red light and transmits blue.
 
 <div class="sixpanel">
 
-  <div class="item1"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
-  <div class="item2"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
-  <div class="item3"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
+  <div class="item1"> <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/amala_quzube_doja_cat.jpg" alt="##I_QUXUBE_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
+  <div class="item2"> <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/amala_quzube_doja_cat.jpg" alt="##I_QUXUBE_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
+  <div class="item3"> <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/amala_quzube_doja_cat.jpg" alt="##I_QUXUBE_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
 
-  <div class="item1"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
-  <div class="item2"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
-  <div class="item3"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
+  <div class="item1"> <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/amala_quzube_doja_cat.jpg" alt="##I_QUXUBE_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
+  <div class="item2"> <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/amala_quzube_doja_cat.jpg" alt="##I_QUXUBE_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
+  <div class="item3"> <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/amala_quzube_doja_cat.jpg" alt="##I_QUXUBE_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
 </div>
 
 
