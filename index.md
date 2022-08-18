@@ -5,8 +5,11 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 
 
 
+## The Vision Of Rassan Medley: Dedication / Roll On Kirk :: HiFi_CLASSiCKS4AUDiOPHiLES
 
+<iframe width="100%" height="539" src="https://www.youtube.com/embed/n7Wjkg7UpK8" title="The Vision Of Rassan Medley: Dedication / Roll On Kirk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+[Eric Burdon - Declares War (1970 Full Album)](https://www.youtube.com/watch?v=OhuX8fFHP6I)
 [The Jones Girls - Nights Over Egypt ](https://www.youtube.com/watch?v=pzxwZ6wjDAM) 
 [Remind Me · Patrice Rushen ·Straight From The Heart](https://www.youtube.com/watch?v=SOPp6EgpDrg) 
 [Yearning For Your Love::By::THE_GAP_BAND](https://www.youtube.com/watch?v=afqzUbvi7D8) 
@@ -35,7 +38,33 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 [Feels So Real (Won't Let Go)](https://www.youtube.com/watch?v=GJroTM6cgDM)
 [The S.O.S. Band  No One's Gonna Love You 1984](https://www.youtube.com/watch?v=3DDeZVnK2E0)
 [S.O.S. Band- Even When You Sleep](https://www.youtube.com/watch?v=aX0wGKIgSZU)
+[Mos Def - Mathematics](https://www.youtube.com/watch?v=m5vw4ajnWGA)
+[PigeonToedShawdy](https://www.youtube.com/user/PigeonToedShawdy)
+https://www.youtube.com/user/PigeonToedShawdy
+[The Supremes NEW Playlist 2022](https://www.youtube.com/watch?v=9zT5syvOp3o)
+[MiamiBassHistory](https://www.youtube.com/user/MiamiBassHistory)
+https://www.youtube.com/user/MiamiBassHistory
+[Wipeout 2097 (ワイプアウト―2097): The Soundtrack (30 September 1996) [CDV2815, LC3098]](https://soundcloud.com/user630627017/cdv2815)
 
+
+## DEAR_QUXUBE ~> CARiBBEAN_LOS_ANGELES_PLAYLiST
+<a href="https://www.youtube.com/watch?v=6npSwAc2rWw"> Feel It Boy · Beenie Man · Janet Jackson </a>
+  <a href="https://www.youtube.com/watch?v=j7QWJXXqiOc">Super Cat--Nuff Man A Dead (GENERALLY_KNOWN_MiX)</a>
+    <a href="https://www.youtube.com/watch?v=4N7gITLIip4">Super Cat - Nuff Man A Dead (Wild Apache Productions mix)</a>
+    <a href="https://youtu.be/-u5m_LfiXzM">Super Cat - Dolly My Baby ft Puff_DADDY and The_Notorious_BiG</a>
+    <a href="https://youtu.be/zM4HXY1cLIY">I Chase the Devil · Max Romeo · The Upsetters</a>
+    <a href="https://www.youtube.com/watch?v=jlFJ1BA37vs">Bob Marley - Crazy Baldhead Live from The Beacon Theater, NYC 4-30-76</a>
+    <a href="youtube.com/watch?v=eR8UnjYag-U">Police In Helicopter · John Holt</a>
+    <a href="https://youtu.be/uozhx1xeTDg" alt="BARRiNGTON_LEVY UNDER_Mi_SENSi">BARRiNGTON_LEVY UNDER_Mi_SENSi</a>
+    <a href="https://youtu.be/Gk4ivz0dm1s" alt="Call On The Father · Beres Hammond">Call On The Father · Beres Hammond</a>
+<a href="https://fossheim.io/writing/posts/css-text-gradient/">How to add a gradient overlay to text with CSS</a>  <a href="https://youtu.be/TSffz_bl6zo">SNOW_iNFORMER::ANGLO_REGGAE</a>
+    <a href="https://youtu.be/SDsMkluc_Mk" alt="She Nuh Ready Yet · Spragga Benz REGGAE">She Nuh Ready Yet · Spragga Benz REGGAE_GOLD98</a>
+    <a href="https://youtu.be/d7S8qZ2c1R4">Love Sponge · Buju Banton</a>
+    <a href="https://www.youtube.com/watch?v=nMD4GumDjxA" alt="Buju Banton - CHAMPiON">Buju Banton - CHAMPiON</a>
+    <a href="https://youtu.be/3jVNX7UI2tw" alt="Whatcha Gonna Do · Peter Tosh"> Whatcha Gonna Do · Peter Tosh</a>
+    <a href="https://youtube.com/watch?v=YwSU0rcVTaE%20%20%3C" alt="Buju Banton - Wanna Be Loved (Official Music Video)">Buju Banton - Wanna Be Loved (Official Music Video)</a>
+    <a href="https://youtu.be/6M-ppiL7EPM" alt="Beenie Man- Bookshelf- Bookshelf Riddim"> Beenie Man- Bookshelf- Bookshelf Riddim</a>
+    <a alt="Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)" href="https://www.youtube.com/watch?v=X1RgygADUpE&t=5s">Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)</a>
 
 ## DEAR_QUXUBE ##
 <iframe width="100%" height="330" src="https://www.youtube.com/embed/dOWtNx16yYY" title="The Jets - Youve Got It All 1986" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
@@ -113,24 +142,6 @@ colored by ozone that scatters red light and transmits blue.
 <iframe width="100%" height="333" src="https://www.youtube.com/embed/jPZVjxWMLpo" title="Little Shop of Horrors Intro w/lyrics" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe width="100%" height="350" src="https://www.youtube.com/embed/Z1l5PFs2eTc" title="House Party - Dance off - long version - Ain't my type of hype" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-## CRUiSiN_CALi_SOUNDS_4_PCH_US1::DATE_IDEAS 
-<a href="https://www.youtube.com/watch?v=6npSwAc2rWw"> Feel It Boy · Beenie Man · Janet Jackson </a>
-  <a href="https://www.youtube.com/watch?v=j7QWJXXqiOc">Super Cat--Nuff Man A Dead (GENERALLY_KNOWN_MiX)</a>
-    <a href="https://www.youtube.com/watch?v=4N7gITLIip4">Super Cat - Nuff Man A Dead (Wild Apache Productions mix)</a>
-    <a href="https://youtu.be/-u5m_LfiXzM">Super Cat - Dolly My Baby ft Puff_DADDY and The_Notorious_BiG</a>
-    <a href="https://youtu.be/zM4HXY1cLIY">I Chase the Devil · Max Romeo · The Upsetters</a>
-    <a href="https://www.youtube.com/watch?v=jlFJ1BA37vs">Bob Marley - Crazy Baldhead Live from The Beacon Theater, NYC 4-30-76</a>
-    <a href="youtube.com/watch?v=eR8UnjYag-U">Police In Helicopter · John Holt</a>
-    <a href="https://youtu.be/uozhx1xeTDg" alt="BARRiNGTON_LEVY UNDER_Mi_SENSi">BARRiNGTON_LEVY UNDER_Mi_SENSi</a>
-    <a href="https://youtu.be/Gk4ivz0dm1s" alt="Call On The Father · Beres Hammond">Call On The Father · Beres Hammond</a>
-<a href="https://fossheim.io/writing/posts/css-text-gradient/">How to add a gradient overlay to text with CSS</a>  <a href="https://youtu.be/TSffz_bl6zo">SNOW_iNFORMER::ANGLO_REGGAE</a>
-    <a href="https://youtu.be/SDsMkluc_Mk" alt="She Nuh Ready Yet · Spragga Benz REGGAE">She Nuh Ready Yet · Spragga Benz REGGAE_GOLD98</a>
-    <a href="https://youtu.be/d7S8qZ2c1R4">Love Sponge · Buju Banton</a>
-    <a href="https://www.youtube.com/watch?v=nMD4GumDjxA" alt="Buju Banton - CHAMPiON">Buju Banton - CHAMPiON</a>
-    <a href="https://youtu.be/3jVNX7UI2tw" alt="Whatcha Gonna Do · Peter Tosh"> Whatcha Gonna Do · Peter Tosh</a>
-    <a href="https://youtube.com/watch?v=YwSU0rcVTaE%20%20%3C" alt="Buju Banton - Wanna Be Loved (Official Music Video)">Buju Banton - Wanna Be Loved (Official Music Video)</a>
-    <a href="https://youtu.be/6M-ppiL7EPM" alt="Beenie Man- Bookshelf- Bookshelf Riddim"> Beenie Man- Bookshelf- Bookshelf Riddim</a>
-    <a alt="Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)" href="https://www.youtube.com/watch?v=X1RgygADUpE&t=5s">Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)</a>
 
 <div class="sixpanel">
 
@@ -143,7 +154,6 @@ colored by ozone that scatters red light and transmits blue.
   <div class="item3"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
 </div>
 
-[Mos Def - Mathematics](https://www.youtube.com/watch?v=m5vw4ajnWGA)
 
 ## ERiKA_TORi BUDGET = PERFECTiON
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1322634691&color=%235c5c5c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/megan-thee-stallion" title="Megan Thee Stallion" target="_blank" style="color: #cccccc; text-decoration: none;">Megan Thee Stallion</a> · <a href="https://soundcloud.com/megan-thee-stallion/budget-ft-latto" title="Budget (feat. Latto)" target="_blank" style="color: #cccccc; text-decoration: none;">Budget (feat. Latto)</a></div>
@@ -195,29 +205,11 @@ Glinn borrowed $400 from Magnum president Cornell Capa, grabbed his camera gear,
 <img src="https://pbs.twimg.com/media/Eb2_yDoXQAM-wp8?format=jpg&name=4096x4096">
 <img src="https://miro.medium.com/max/928/1*POSNimcltkaYITMTkfg1RA.jpeg">
 <img src="https://q8x6q2v5.stackpathcdn.com/wp-content/uploads/2020/07/distress-displacement.jpg">
-<img src="https://miro.medium.com/max/1400/1*stlyv9lAMc9X-22uPex7mQ.png">
-<img src="https://miro.medium.com/max/480/1*MGcLJS1ZvMFcBA94PXn16Q.png">
-<img src="https://mpng.subpng.com/20180423/lje/kisspng-vim-computer-icons-text-editor-installation-plug-i-design-works-5addb4c2314215.7668023815244791702018.jpg">
-    <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/9/9a/Visual_Studio_Code_1.35_icon.svg/2048px-Visual_Studio_Code_1.35_icon.svg.png" >
-   
 
-[The Supremes NEW Playlist 2022](https://www.youtube.com/watch?v=9zT5syvOp3o)
 
 
 <img src="https://scitechdaily.com/images/Ballistic-Resonance.jpg">
 
-[PigeonToedShawdy](https://www.youtube.com/user/PigeonToedShawdy)
-https://www.youtube.com/user/PigeonToedShawdy
-
-[MiamiBassHistory](https://www.youtube.com/user/MiamiBassHistory)
-https://www.youtube.com/user/MiamiBassHistory
-
-[Wipeout 2097 (ワイプアウト―2097): The Soundtrack (30 September 1996) [CDV2815, LC3098]](https://soundcloud.com/user630627017/cdv2815)
-
-## The Vision Of Rassan Medley: Dedication / Roll On Kirk :: HiFi_CLASSiCKS4AUDiOPHiLES
-
-<iframe width="100%" height="539" src="https://www.youtube.com/embed/n7Wjkg7UpK8" title="The Vision Of Rassan Medley: Dedication / Roll On Kirk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-[Eric Burdon - Declares War (1970 Full Album)](https://www.youtube.com/watch?v=OhuX8fFHP6I)
 
 <img src="https://www.graff-city.com/images/molotow-ny-fat-caps-p2915-12168_image.jpg">
 
