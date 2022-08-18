@@ -6,49 +6,51 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 
 
 
-## DEAR_MUWA##OH_HOW_I_MISS_YOU ##
+## DEAR_QUXUBE ##
+## CRUiSiN_CALi_SOUNDS_4_PCH_US1::DATE_IDEAS 
+<a href="https://www.youtube.com/watch?v=6npSwAc2rWw"> Feel It Boy · Beenie Man · Janet Jackson </a>
+  <a href="https://www.youtube.com/watch?v=j7QWJXXqiOc">Super Cat--Nuff Man A Dead (GENERALLY_KNOWN_MiX)</a>
+    <a href="https://www.youtube.com/watch?v=4N7gITLIip4">Super Cat - Nuff Man A Dead (Wild Apache Productions mix)</a>
+    <a href="https://youtu.be/-u5m_LfiXzM">Super Cat - Dolly My Baby ft Puff_DADDY and The_Notorious_BiG</a>
+    <a href="https://youtu.be/zM4HXY1cLIY">I Chase the Devil · Max Romeo · The Upsetters</a>
+    <a href="https://www.youtube.com/watch?v=jlFJ1BA37vs">Bob Marley - Crazy Baldhead Live from The Beacon Theater, NYC 4-30-76</a>
+    <a href="youtube.com/watch?v=eR8UnjYag-U">Police In Helicopter · John Holt</a>
+    <a href="https://youtu.be/uozhx1xeTDg" alt="BARRiNGTON_LEVY UNDER_Mi_SENSi">BARRiNGTON_LEVY UNDER_Mi_SENSi</a>
+    <a href="https://youtu.be/Gk4ivz0dm1s" alt="Call On The Father · Beres Hammond">Call On The Father · Beres Hammond</a>
+<a href="https://fossheim.io/writing/posts/css-text-gradient/">How to add a gradient overlay to text with CSS</a>  <a href="https://youtu.be/TSffz_bl6zo">SNOW_iNFORMER::ANGLO_REGGAE</a>
+    <a href="https://youtu.be/SDsMkluc_Mk" alt="She Nuh Ready Yet · Spragga Benz REGGAE">She Nuh Ready Yet · Spragga Benz REGGAE_GOLD98</a>
+    <a href="https://youtu.be/d7S8qZ2c1R4">Love Sponge · Buju Banton</a>
+    <a href="https://www.youtube.com/watch?v=nMD4GumDjxA" alt="Buju Banton - CHAMPiON">Buju Banton - CHAMPiON</a>
+    <a href="https://youtu.be/3jVNX7UI2tw" alt="Whatcha Gonna Do · Peter Tosh"> Whatcha Gonna Do · Peter Tosh</a>
+    <a href="https://youtube.com/watch?v=YwSU0rcVTaE%20%20%3C" alt="Buju Banton - Wanna Be Loved (Official Music Video)">Buju Banton - Wanna Be Loved (Official Music Video)</a>
+    <a href="https://youtu.be/6M-ppiL7EPM" alt="Beenie Man- Bookshelf- Bookshelf Riddim"> Beenie Man- Bookshelf- Bookshelf Riddim</a>
+    <a alt="Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)" href="https://www.youtube.com/watch?v=X1RgygADUpE&t=5s">Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)</a>
 
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/SvBVDibOrgs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="476" src="https://www.youtube.com/embed/2uMNtOQOaLU" title="Ghost in the Shell - English Trailer" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2DhoBuU1Dtc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+[The Jones Girls - Nights Over Egypt ](https://www.youtube.com/watch?v=pzxwZ6wjDAM) 
+[Remind Me · Patrice Rushen ·Straight From The Heart](https://www.youtube.com/watch?v=SOPp6EgpDrg) 
+[Yearning For Your Love::By::THE_GAP_BAND](https://www.youtube.com/watch?v=afqzUbvi7D8) 
+[The Jones Girls::Who Can I Run To?::1979](https://www.youtube.com/watch?v=JRpKQb9J-nU) 
+[Keke Wyatt::NOTHiNG_iN_THiS_WORLD](https://www.youtube.com/watch?v=diEV1qC34Og) 
+[Stephanie Mills-Two Hearts Featuring Teddy Pendergrass](https://www.youtube.com/watch?v=uJ7HN1nNdbc) 
+[NEW_EDiTiON::Cool It Now (Official Video)](https://www.youtube.com/watch?v=RZUq6N7Gx1c) 
+[NEW_EDiTiON::Mr. Telephone Man](https://www.youtube.com/watch?v=GsWrlzjxbPY) 
+[BOBBY_BROWN::Every Little Step](https://www.youtube.com/watch?v=muDCggSpqpE) 🔥 
+[A1 Warm It Up (LP Version) Producer – Jermaine Dupri](https://www.youtube.com/watch?v=fwXfhQaBRZI) 🔥 
+[TLC - What About Your Friends (Official Video)](https://www.youtube.com/watch?v=92gHq1s6G-c) 
+[Another Bad Creation - Iesha (Official Music Video)](https://www.youtube.com/watch?v=ZDPIK7Fz_g4) 
+[SWV – You're The One Genre: Funk / Soul Style: RnB/Swing, Hip Hop Year: 1996](https://www.youtube.com/watch?v=Ua4fg2FQ6w8) 
+[BRANDY::Sittin' Up In My Room from Waiting to Exhale - Original SoundtracK](https://www.youtube.com/watch?v=DGgANpSjoas) 
+[702 - Steelo feat. Missy Elliott::1996](https://www.youtube.com/watch?v=LdvRwHhla6Q)
+
 
 [Beenie Man ‎– Jamaica Way Ft. Kelis (Beenie Man ‎– Art And Life, Virgin, 2000)](https://youtu.be/MNk1ymskIGI)
 [Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)](https://youtu.be/X1RgygADUpE)
 
-<iframe width="100%" height="509" src="https://www.youtube.com/embed/sW_ePQRvrKI" title="Beenie Man featuring Mya - Girls Dem Sugar (Official Music Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/KS6bVTYRh-w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 [Sean Paul - I'm Still In Love With You (Official Video)](https://www.youtube.com/watch?v=AQ4TW5Z8eu0) 
-<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/screenshots/222CAPTURE_95SOUTH_SEAN.PNG">
-<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/screenshots/222CAPTURE95_SOUTH_LOVE_LIKE_THIS.PNG">
-<iframe width="100%" height="496" src="https://www.youtube.com/embed/AQ4TW5Z8eu0" title="Sean Paul - I'm Still In Love With You (Official Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="496" src="https://www.youtube.com/embed/aBwvFBxf_Eg" title="95 South Whoot There It Is" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-     <a href="https://youtu.be/cPz16LHTtpo" ><img src="https://i.discogs.com/KJHyx6pjSi9PWv-HEPq2q3Nu0RBeODfbor5IrKCxIcU/rs:fit/g:sm/q:90/h:593/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE0MzMz/My0xNTc0NjMzMDg5/LTIyMDAuanBlZw.jpeg"></a>
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/cPz16LHTtpo" ><img src="https://i.discogs.com/TDVVsJ7A0yE9O6GRIJMiNQGgP-sMgQ9HhsV8FwwDTc4/rs:fit/g:sm/q:90/h:466/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE0MzMz/My0xNTc0NjMzMTUw/LTc3MDQuanBlZw.jpeg"></a>
-         </div>
-    </div>
-  </div>
-</div>
+
 
 [C'mon N' Ride It (The Train)](https://www.youtube.com/watch?v=3Awey7AbXT0)
-
-<a href="https://youtu.be/ZXZOw0lwnKI"><img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/coverArt/jpark.png"></a>
-<iframe src="https://archive.org/embed/arcade_jpark" width="100%" height="500" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
-<a href="https://www.youtube.com/watch?v=_jnG_U414y4&list=PLMHR2xnx8VCrcHUoyjvemE8T1_DMdv2U-" ><img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/coverArt/xmvsf.png"></a>
-<iframe src="https://archive.org/embed/arcade_xmvsf" width="100%" height="500" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
-  
-<iframe src="https://archive.org/embed/arcade_dynablst" width="100%" height="500" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
-<iframe width="100%" height="300" src="https://www.youtube.com/embed/IlHTsCx913c" title="I Remember" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
-
 
 [52nd Street - Tell Me (Extended Vers.)](https://www.youtube.com/watch?v=3Ck25PGjlLc)
 [The S.O.S. Band - Just The Way You Like It, Mall_oF_GEORGiA_FEELiNGS](https://www.youtube.com/watch?v=4Nlr9vU0DfU)
@@ -59,44 +61,7 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 [Feels So Real (Won't Let Go)](https://www.youtube.com/watch?v=GJroTM6cgDM)
 [The S.O.S. Band  No One's Gonna Love You 1984](https://www.youtube.com/watch?v=3DDeZVnK2E0)
 [S.O.S. Band- Even When You Sleep](https://www.youtube.com/watch?v=aX0wGKIgSZU)
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/JXTZ4OqQIr4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-     <a href="https://youtu.be/LTz5J0VksDc" >
-<img src="https://i.discogs.com/XLRLhG8jlSWkgLYHCZOUtZt310LFJYMnxuNBTUdc52A/rs:fit/g:sm/q:90/h:549/w:560/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTEyMzkw/NzMtMTIwOTE0MTk1/OS5qcGVn.jpeg">
-</a>
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/LTz5J0VksDc" >
-<img src="https://i.discogs.com/XLRLhG8jlSWkgLYHCZOUtZt310LFJYMnxuNBTUdc52A/rs:fit/g:sm/q:90/h:549/w:560/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTEyMzkw/NzMtMTIwOTE0MTk1/OS5qcGVn.jpeg">
-</a>
-         </div>
-    </div>
-  </div>
-</div>
-<img src="https://cdn.shopify.com/s/files/1/0902/5612/products/the_sos_band_on_the_rise_vinyl_front_cover.JPG?v=1568162842">
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-     <a href="https://youtu.be/LTz5J0VksDc" >
-<img src="https://64.media.tumblr.com/b42a2f1740467cfa9d1a66f43d35f77f/cef1c71e509a404e-92/s540x810/b9888033f31845c3d65572852941c1ded4c05e78.gifv">
-</a>
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/LTz5J0VksDc" >
-<img src="https://64.media.tumblr.com/b42a2f1740467cfa9d1a66f43d35f77f/cef1c71e509a404e-92/s540x810/b9888033f31845c3d65572852941c1ded4c05e78.gifv">
-</a>
-         </div>
-    </div>
-  </div>
-</div>
+
 <div class="sixpanel">
 
   <div class="item1"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
@@ -107,112 +72,14 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
   <div class="item2"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
   <div class="item3"> <img src="https://www.ladygunn.com/wp-content/uploads/2022/03/FINAL-LADYGUNN_MUNI_COVER_MARCH.png" alt="##I_SARTU_ALi_SELASSiE_AM_THAKA_RASHARD_IMAN_SELASSiES_WiFE" /></div>
 </div>
-<img src="https://i.scdn.co/image/ab67616d0000b2739b2afdbb9277461bcc185735">
-<iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/63DTXKZi7YdJ4tzGti1Dtr?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
-
-
-
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-     <a href="https://youtu.be/LTz5J0VksDc" ><img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/133356241_1820966041398378_3042544596727577917_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=730e14&_nc_ohc=sccn5gH-tYMAX8DSrlm&_nc_ht=scontent-lax3-2.xx&oh=00_AT-qs9iR4fYh4qeH-8xzBzr3aLegq6m0j7Bxq_x_KhbuDQ&oe=632369E6"></a>
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/LTz5J0VksDc" ><img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/133356241_1820966041398378_3042544596727577917_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=730e14&_nc_ohc=sccn5gH-tYMAX8DSrlm&_nc_ht=scontent-lax3-2.xx&oh=00_AT-qs9iR4fYh4qeH-8xzBzr3aLegq6m0j7Bxq_x_KhbuDQ&oe=632369E6"></a>
-         </div>
-    </div>
-  </div>
-</div>
 
 [Mos Def - Mathematics](https://www.youtube.com/watch?v=m5vw4ajnWGA)
-<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/133366993_1821045811390401_8101306576578830128_n.jpg?_nc_cat=102&ccb=1-7&_nc_sid=730e14&_nc_ohc=2GtODCqgnv0AX9L8_TP&_nc_ht=scontent-lax3-1.xx&oh=00_AT_c5-zSWo3TM8T3dsVMOeLlGIJ32082dmqijfZ3bbUqOw&oe=63234648">
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-     <a href="https://youtu.be/LTz5J0VksDc" ><img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/134394216_1822566301238352_2254104999385667238_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=730e14&_nc_ohc=vQkRqfEuDqYAX90T-4L&_nc_ht=scontent-lax3-1.xx&oh=00_AT_HUwtAgTboNOa2EdVuJAjp_1WSDE7VXOIuAT57A7wtkQ&oe=631FEE8C"></a>
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/LTz5J0VksDc" ><img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/134394216_1822566301238352_2254104999385667238_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=730e14&_nc_ohc=vQkRqfEuDqYAX90T-4L&_nc_ht=scontent-lax3-1.xx&oh=00_AT_HUwtAgTboNOa2EdVuJAjp_1WSDE7VXOIuAT57A7wtkQ&oe=631FEE8C"></a>
-         </div>
-    </div>
-  </div>
-</div>
-
-
-<img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5fc456bce1ebb64f08283bf2/vsco5fc456bd41267.jpg">
-<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/134409962_1824250204403295_7451209858782732429_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=E0XOFIGavMoAX_cnSCH&tn=LlHy2Qv6m3e-7RU1&_nc_ht=scontent-lax3-1.xx&oh=00_AT_iibDQqWibSwPVzJEWznoGqqXvtB-C1ai3oHaync4xrg&oe=63235928" >
 
 ## ERiKA_TORi BUDGET = PERFECTiON
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1322634691&color=%235c5c5c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/megan-thee-stallion" title="Megan Thee Stallion" target="_blank" style="color: #cccccc; text-decoration: none;">Megan Thee Stallion</a> · <a href="https://soundcloud.com/megan-thee-stallion/budget-ft-latto" title="Budget (feat. Latto)" target="_blank" style="color: #cccccc; text-decoration: none;">Budget (feat. Latto)</a></div>
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1322630917&color=%236c6c6c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/megan-thee-stallion" title="Megan Thee Stallion" target="_blank" style="color: #cccccc; text-decoration: none;">Megan Thee Stallion</a> · <a href="https://soundcloud.com/megan-thee-stallion/ungrateful-feat-key-glock" title="Ungrateful (feat. Key Glock)" target="_blank" style="color: #cccccc; text-decoration: none;">Ungrateful (feat. Key Glock)</a></div>
 <div class="expandingGallery"><img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/135011431_1824376414390674_516658343576780341_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=730e14&_nc_ohc=QyHtisWkmKgAX-fNcur&_nc_ht=scontent-lax3-2.xx&oh=00_AT8dKR2-dQghB1fmut2lwCiwTKhpdR3ZaJbDrvXapw81QA&oe=6322DD45" /><img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5cfc53f879eeec391e7a6730/vsco5cfc53f98b1fb.jpg" /><img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/134741910_1824376361057346_5760762196412101977_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=730e14&_nc_ohc=5I1Uppa3E8EAX-XA8qW&tn=LlHy2Qv6m3e-7RU1&_nc_ht=scontent-lax3-1.xx&oh=00_AT-0Bz95SjKPZ10mvaSbTfTccnaSTGBjxG_JfFZTcU6S_g&oe=6321A087" /><img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5cf3623a82fdb56e8b3b868d/vsco5cf3623bd9721.jpg" /><img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5fc4bb251d78313c14000007/vsco5fc4bb27bbd2e.jpg" /></div>
-<img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5d03f25233151a2e37784775/852x1136/vsco5d03f2540aad5.jpg" >
 
-<img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5fc4bb3e1d78313c1400000b/vsco5fc4bb3f86cf5.jpg">
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-<img src="https://brighamyen.com/wp-content/uploads/2013/12/DSC01261.jpg">
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://soundcloud.com/deydey-79487267/kodak-black-snot-thot?si=3baf2cea5d7e4b1c9fb8ef80b96a9949&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing" ><img src="https://brighamyen.com/wp-content/uploads/2013/12/DSC01261.jpg">
-</a>
-         </div>
-    </div>
-  </div>
-</div>
-
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/255843065&color=%23e77c66&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/childish-gambino" title="Childish Gambino" target="_blank" style="color: #cccccc; text-decoration: none;">Childish Gambino</a> · <a href="https://soundcloud.com/childish-gambino/ii-worldstar" title="II. Worldstar" target="_blank" style="color: #cccccc; text-decoration: none;">II. Worldstar</a></div>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/170385089&color=%23cddec4&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/glme" title="G" target="_blank" style="color: #cccccc; text-decoration: none;">G</a> · <a href="https://soundcloud.com/glme/candler-road-1st-half-prod-tim" title="Candler Road (1st half prod Tim Suby / 2nd half prod Childish Gambino)" target="_blank" style="color: #cccccc; text-decoration: none;">Candler Road (1st half prod Tim Suby / 2nd half prod Childish Gambino)</a></div>
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-<img src="https://64.media.tumblr.com/ec59492909c5875bc4f5f2e9e94d3f20/tumblr_nj7dljUEVA1rodxovo6_640.jpg">
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://soundcloud.com/deydey-79487267/kodak-black-snot-thot?si=3baf2cea5d7e4b1c9fb8ef80b96a9949&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing" ><img src="https://64.media.tumblr.com/ec59492909c5875bc4f5f2e9e94d3f20/tumblr_nj7dljUEVA1rodxovo6_640.jpg">
-</a>
-         </div>
-    </div>
-  </div>
-</div>
-<img src="https://img.artlogic.net/w_1010,h_580,c_limit/exhibit-e/57aa18be87aa2c363caf43ad/38c2f5e82855b4de51d069b78df4c08f.jpeg">
-<iframe src="https://gcp-embeds.datpiff.com/mixtape/23746/" width="100%" height="270" frameborder="0"></iframe>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/XCz2BhlS1YM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/3fGF2eP79xeu2ABvSSfMXl?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-<img src="https://64.media.tumblr.com/23ce50b01dd6f7cd3cb286808d6be9d0/tumblr_nj7dljUEVA1rodxovo4_640.jpg">
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://soundcloud.com/deydey-79487267/kodak-black-snot-thot?si=3baf2cea5d7e4b1c9fb8ef80b96a9949&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing" ><img src="https://64.media.tumblr.com/23ce50b01dd6f7cd3cb286808d6be9d0/tumblr_nj7dljUEVA1rodxovo4_640.jpg">
-</a>
-         </div>
-    </div>
-  </div>
-</div>
-
-<img src="https://images.squarespace-cdn.com/content/v1/5eb767f48e6ba97a3b58baae/1589396319935-95A8359TQ72MBXNGBYL9/faust-prevail-stoke-mural.jpeg">
-<img src="https://64.media.tumblr.com/tumblr_m93prpWQwE1qblqfzo1_500.jpg">
-<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/screenshots/beeMdoublU.PNG">
-
-<iframe width="100%" height="503" src="https://www.youtube.com/embed/zjVSewbKllk" title="Disclosure - Jaded" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 ## YOUNG GUERILLERO RECENTLY IN HIDING SPEAKS TO HIS FIRST CIVILIAN LADY, HAVANA, CUBA, JANUARY 1, 1959 - from our story '“Not a Bed of Roses” – Burt Glinn’s Photos of the Cuban Revolution (1959)'
 On New Year’s Eve 1958, young Magnum photographer Burt Glinn was celebrating at a black tie party in New York. All the talk that evening was of corrupt Cuban dictator Fulgencio Batista, rumoured to be ready to flee for his life from Havana and said to have already backed his army trucks up to the treasury.
 
@@ -262,62 +129,20 @@ Glinn borrowed $400 from Magnum president Cornell Capa, grabbed his camera gear,
 <img src="https://miro.medium.com/max/480/1*MGcLJS1ZvMFcBA94PXn16Q.png">
 <img src="https://mpng.subpng.com/20180423/lje/kisspng-vim-computer-icons-text-editor-installation-plug-i-design-works-5addb4c2314215.7668023815244791702018.jpg">
     <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/9/9a/Visual_Studio_Code_1.35_icon.svg/2048px-Visual_Studio_Code_1.35_icon.svg.png" >
-    
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/pvYOSuz8yG4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/MQs22Kt-vZk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
    
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/J8egNe34CQI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe src="https://www.facebook.com/plugins/video.php?height=476&href=https%3A%2F%2Fwww.facebook.com%2FCaptainOfJoy%2Fvideos%2F1816135065214809%2F&show_text=false&width=476&t=0" width="100%" height="600px" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe>
-<img src="https://gateway.okhistory.org/ark:/67531/metadc1586127/m1/1/med_res/">
 
-<img src="https://pbs.twimg.com/media/EG1_Yv9VAAIgEYW?format=jpg">
-
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/a8tKgBHFSVQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/1XkXmvhIZzIZDIg70zaLMW?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
-
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/1479281641&color=%23ff9900&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/owen-saward-117534008" title="Owen Saward" target="_blank" style="color: #cccccc; text-decoration: none;">Owen Saward</a> · <a href="https://soundcloud.com/owen-saward-117534008/sets/late-night-tales-cinematic-mix" title="Late Night Tales Cinematic Mix" target="_blank" style="color: #cccccc; text-decoration: none;">Late Night Tales Cinematic Mix</a></div>
+[The Supremes NEW Playlist 2022](https://www.youtube.com/watch?v=9zT5syvOp3o)
 
 
-[The Supremes Greatest Hits | Best Songs of The Supremes - Full Album The Supremes NEW Playlist 2022](https://www.youtube.com/watch?v=9zT5syvOp3o)
-
-
-
-
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/32238226&color=%23989c9c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/topdawgent" title="TopDawgEnt" target="_blank" style="color: #cccccc; text-decoration: none;">TopDawgEnt</a> · <a href="https://soundcloud.com/topdawgent/schoolboy-q-blessed-ft" title="ScHoolBoy Q - Blessed ft Kendrick Lamar (Prod by Dave Free)" target="_blank" style="color: #cccccc; text-decoration: none;">ScHoolBoy Q - Blessed ft Kendrick Lamar (Prod by Dave Free)</a></div>
-<iframe src="https://www.facebook.com/plugins/video.php?height=476&href=https%3A%2F%2Fwww.facebook.com%2FCaptainOfJoy%2Fvideos%2F1728436390651344%2F&show_text=false&width=476&t=0" width="476" height="476" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe>
-<iframe src="https://www.facebook.com/plugins/video.php?height=476&href=https%3A%2F%2Fwww.facebook.com%2FCaptainOfJoy%2Fvideos%2F1726257334202583%2F&show_text=false&width=476&t=0" width="476" height="476" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe>
-<img src="https://i.pinimg.com/564x/c9/04/a6/c904a6b4db2ea006647c888c3cf4b90b.jpg">
 <img src="https://scitechdaily.com/images/Ballistic-Resonance.jpg">
 
-## STREET_FigHTER
-## FANDOM_CAPCOM
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/EEDvf6VclD4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/gV346aR-A6A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-## Muna or should i say Muni
-This shit supa fresh! Its a time capsule of ATL_BOOTYSHAKE shit you would never hear in Alpharetta as a resident at pretty much any point in time! ##FREE_LUNCH + HBCU + BATTLE_OF_THE_BANDS + FALCONS_Vs_DA_SAiNTS plus many other vibes you missed not letting me be your Graff partner in Atlanta... Vedo really dont know dis shit
 [PigeonToedShawdy](https://www.youtube.com/user/PigeonToedShawdy)
 https://www.youtube.com/user/PigeonToedShawdy
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/-K6IT8NnQR4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-
-## Dear_Muna
-This miami bass account hella sick 
 [MiamiBassHistory](https://www.youtube.com/user/MiamiBassHistory)
 https://www.youtube.com/user/MiamiBassHistory
 
-
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/296704218&color=%23957133&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/lapalux" title="Lapalux" target="_blank" style="color: #cccccc; text-decoration: none;">Lapalux</a> · <a href="https://soundcloud.com/lapalux/midnight-peelers-1" title="Midnight Peelers" target="_blank" style="color: #cccccc; text-decoration: none;">Midnight Peelers</a></div>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/281667952&color=%23957133&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/lapalux" title="Lapalux" target="_blank" style="color: #cccccc; text-decoration: none;">Lapalux</a> · <a href="https://soundcloud.com/lapalux/sets/lustmore-1" title="Lustmore" target="_blank" style="color: #cccccc; text-decoration: none;">Lustmore</a></div>
-<img src="https://www.typedifferent.com/fonts/bd_times_new_digital/bd_times_new_digital_example1.jpg">
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/278380034&color=%23007fff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/kaijuubi" title="kleptomaniac" target="_blank" style="color: #cccccc; text-decoration: none;">kleptomaniac</a> · <a href="https://soundcloud.com/kaijuubi/lil-wayne-a-milli-suicideyear-remix" title="lil wayne - a milli [suicideyear remix]" target="_blank" style="color: #cccccc; text-decoration: none;">lil wayne - a milli [suicideyear remix]</a></div>
 [Wipeout 2097 (ワイプアウト―2097): The Soundtrack (30 September 1996) [CDV2815, LC3098]](https://soundcloud.com/user630627017/cdv2815)
-<img src="https://www.typedifferent.com/fonts/bd_vectrons/bd_vectrons_example3.jpg" >
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/133997151&color=%23c49c8c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/user8876469" title="Clunk" target="_blank" style="color: #cccccc; text-decoration: none;">Clunk</a> · <a href="https://soundcloud.com/user8876469/stuntin-like-my-daddy" title="Stuntin Like My Daddy (suicideyear Remix)" target="_blank" style="color: #cccccc; text-decoration: none;">Stuntin Like My Daddy (suicideyear Remix)</a></div>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1304824909&color=%23c49c8c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/partypupils" title="Party Pupils" target="_blank" style="color: #cccccc; text-decoration: none;">Party Pupils</a> · <a href="https://soundcloud.com/partypupils/summer-in-la-vol-1-live-mixtape" title="SUMMER IN LA VOL 1 - LIVE MIXTAPE" target="_blank" style="color: #cccccc; text-decoration: none;">SUMMER IN LA VOL 1 - LIVE MIXTAPE</a></div>
-<img src="https://www.typedifferent.com/fonts/bdr_a3mik/bdr_a3mik_example2.jpg">
-<img src="https://www.typedifferent.com/fonts/bdr_a3mik/bdr_a3mik_example7.jpg">
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/250370192&color=%2394548c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/user-850740963" title="VANDL" target="_blank" style="color: #cccccc; text-decoration: none;">VANDL</a> · <a href="https://soundcloud.com/user-850740963/waka-flocka-flame-hard-in-the-paint-suicideyear-remix" title="Waka Flocka Flame - Hard In The Paint (suicideyear Remix)" target="_blank" style="color: #cccccc; text-decoration: none;">Waka Flocka Flame - Hard In The Paint (suicideyear Remix)</a></div>
 
 ## The Vision Of Rassan Medley: Dedication / Roll On Kirk :: HiFi_CLASSiCKS4AUDiOPHiLES
 
@@ -326,7 +151,7 @@ https://www.youtube.com/user/MiamiBassHistory
 
 <img src="https://www.graff-city.com/images/molotow-ny-fat-caps-p2915-12168_image.jpg">
 
-## DEAR_HAYAT
+## DEAR_ACHEMELESH
 
  i did this tag with TAR_BLACK... Them nozzles is butta
 
@@ -356,7 +181,7 @@ https://www.youtube.com/user/MiamiBassHistory
 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/MYxAiK6VnXw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-## Dear_Muna
+## Dear_QUXUBE
 12ozProphet Memento Mori Patch, for my weakening backpack
 
 <img src="https://cdn.shopify.com/s/files/1/3005/5554/products/12ozprophet-memento-mori-patch_720x.jpg?v=1524111434" >
@@ -370,11 +195,8 @@ https://www.youtube.com/user/MiamiBassHistory
 Muna this shit dope, he even stars in the shit... This kind of content ensures it would never happen iRL witha conscience niggah liyke dat owwn da mic... Luke know his ass
 <iframe width="100%" height="375" src="https://www.youtube.com/embed/jYdaQJzcAcw" title="J. Cole - She Knows (Explicit Video) ft. Amber Coffman, Cults" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-<iframe width="100%" height="375" src="https://www.youtube.com/embed/jYdaQJzcAcw" title="J. Cole - She Knows (Explicit Video) ft. Amber Coffman, Cults" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [Wet Dreamz](https://www.youtube.com/watch?v=lTgvsJY4aYE)
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/AVrNHI4RdPM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-[Scaling, centering and cropping image with object-fit and object-position](https://stackoverflow.com/questions/45228684/scaling-centering-and-cropping-image-with-object-fit-and-object-position)
 [How To Scale and Crop Images with CSS object-fit](https://www.digitalocean.com/community/tutorials/css-cropping-images-object-fit)
 [Meek Mill - 1942](https://www.youtube.com/watch?v=Pgd_Tgi-pbQ)
 
@@ -391,65 +213,6 @@ In the course Project 4, the reader will explore ways to creatively style hyperl
 
 [Free Mind](https://www.youtube.com/watch?v=tQiNQL-FEgU)
 
-[About Muwah](https://www.pinterest.com/drstankenstein/muna_ahmed_selassieakakellysearching_for/)
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://i.pinimg.com/originals/72/ea/60/72ea602f7a68bf441aaf3fff6a42ee48.jpg" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://soundcloud.com/deydey-79487267/kodak-black-snot-thot?si=3baf2cea5d7e4b1c9fb8ef80b96a9949&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing" ><img src="https://i.pinimg.com/originals/72/ea/60/72ea602f7a68bf441aaf3fff6a42ee48.jpg" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://i.pinimg.com/564x/3a/46/2c/3a462c6836a5fe0d815f0c0b534b669d.jpg" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://soundcloud.com/deydey-79487267/kodak-black-snot-thot?si=3baf2cea5d7e4b1c9fb8ef80b96a9949&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing" ><img src="https://i.pinimg.com/564x/3a/46/2c/3a462c6836a5fe0d815f0c0b534b669d.jpg" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://static.wikia.nocookie.net/marveldatabase/images/3/38/Transformers_Universe_Vol_1_4.jpg" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://www.youtube.com/watch?v=XWXVLXP9Gz0" ><img src="https://static.wikia.nocookie.net/marveldatabase/images/3/38/Transformers_Universe_Vol_1_4.jpg" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
-
-<img src="https://i.imgur.com/TcEl9M7l.jpg">
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://static.wixstatic.com/media/c22431_07c3e91920aa49b7b2004519947a306d~mv2.jpg/v1/fill/w_350,h_350,al_c,q_90/c22431_07c3e91920aa49b7b2004519947a306d~mv2.webp" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://www.youtube.com/watch?v=XWXVLXP9Gz0" ><img src="https://static.wixstatic.com/media/c22431_07c3e91920aa49b7b2004519947a306d~mv2.jpg/v1/fill/w_350,h_350,al_c,q_90/c22431_07c3e91920aa49b7b2004519947a306d~mv2.webp" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
 
 ## Twin Flames - The Bubble Love Phase
 It's a euphoric bliss like state where the two feel like they live in their own dimension and many get sad when the stage ends as what comes up must come down. I however am of the belief that it can be made to last but it is depending on the spiritual maturity of the two in union...[ReadMore](https://www.whitewolfalchemy.com/single-post/2019/10/27/twin-flames-the-bubble-love-phase) [VisiT ~> WHiTE_WOLF_ALCHEMY](https://www.whitewolfalchemy.com)
@@ -499,89 +262,6 @@ The purpose of a soulmate is to teach us a karmic lesson, as laid out before we 
 [Is a twin flame relationship a past life connection?](https://www.quora.com/Is-a-twin-flame-relationship-a-past-life-connection)
 [Built From Scratch (CD) X-ecutioners](https://www.amoeba.com/built-from-scratch-cd-x-ecutioners/albums/1405861/)
 
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://d1466nnw0ex81e.cloudfront.net/n_iv/600/795435.jpg" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/Tc4mRi7W2Ls" target="_blank"><img src="https://d1466nnw0ex81e.cloudfront.net/n_iv/600/795435.jpg" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
-
-
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://img.gocollect.com/eyJidWNrZXQiOiJnb2NvbGxlY3QuaW1hZ2VzLnB1YiIsImtleSI6ImUyYWI2ODE3LWU1MTAtNGViZS05OWJhLThkZGQxZDlmZjRhMS5qcGciLCJlZGl0cyI6W119" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/Tc4mRi7W2Ls" target="_blank"><img src="https://img.gocollect.com/eyJidWNrZXQiOiJnb2NvbGxlY3QuaW1hZ2VzLnB1YiIsImtleSI6ImUyYWI2ODE3LWU1MTAtNGViZS05OWJhLThkZGQxZDlmZjRhMS5qcGciLCJlZGl0cyI6W119" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
-<img src="https://cdn.shopify.com/s/files/1/0558/2081/files/Barrett_Transformers_Variant_Ext.jpg">
-<img src="https://www.pastposters.com/cw3/assets/product_expanded/JamieF-SV/transformers-movie-cinema-quad-movie-poster-(1).jpg">
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://cdn.shopify.com/s/files/1/1416/8662/products/empire_strikes_back_1980_insert_original_film_art_f_1200x.jpg" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/Tc4mRi7W2Ls" target="_blank"><img src="https://cdn.shopify.com/s/files/1/1416/8662/products/empire_strikes_back_1980_insert_original_film_art_f_1200x.jpg" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
-<img src="https://cdn.shopify.com/s/files/1/1057/4964/products/The-Empire-Strikes-Back-Vintage-Movie-Poster-Original-3-Sheet-41x81_a133c1b8-5a53-4a40-80d8-84f9f2f46222.jpg?v=1637722919">
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://m.media-amazon.com/images/I/71w1JI++RQL._SX522_.jpg" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/Tc4mRi7W2Ls" target="_blank"><img src="https://m.media-amazon.com/images/I/71w1JI++RQL._SX522_.jpg" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
-
-
-
-[NORIYOSHI OHRAI Art plus THE LAST JEDI MERCHANDISE REVEALED](https://milnersblog.com/category/star-wars/episode-viii/)
-
-<img src="https://milnersblog.files.wordpress.com/2015/11/rip-noriyoshi-ohrai-star-wars-the-empire-strikes-back-japanese-film-poster.jpg">
-<img src="https://soundapproach.com/media/catalog/product/cache/9d08971813a040f8f96067a40f75c615/2/0/20170103043522_83240.jpg">
-
-[HiFiMAN - Shangri La - Electrostatic Headphone/Amplifier System](https://soundapproach.com/hifiman-shangri-la-electrostatic-headphone-amplifier-system.html)
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/336696784&color=%23384241&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/selectabwoy" title="Selectabwoy" target="_blank" style="color: #cccccc; text-decoration: none;">Selectabwoy</a> · <a href="https://soundcloud.com/selectabwoy/rawkus-presents-soundbombing-ii-1999" title="Rawkus Presents Soundbombing II (1999)" target="_blank" style="color: #cccccc; text-decoration: none;">Rawkus Presents Soundbombing II (1999)</a></div>
-
-<img src="https://soundapproach.com/media/catalog/product/cache/9d08971813a040f8f96067a40f75c615/2/0/20161120215442_71962.jpg">
-
-[The Best High-Performance Subwoofer By Brent Butterworth](https://www.nytimes.com/wirecutter/reviews/best-subwoofer-for-home/)
-
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/308016226&color=%23141314&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/itsellamai" title="Ella Mai" target="_blank" style="color: #cccccc; text-decoration: none;">Ella Mai</a> · <a href="https://soundcloud.com/itsellamai/breakfast-in-bed" title="Breakfast In Bed" target="_blank" style="color: #cccccc; text-decoration: none;">Breakfast In Bed</a></div>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/425539491&color=%2374b4bc&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/iamcardib" title="Cardi B" target="_blank" style="color: #cccccc; text-decoration: none;">Cardi B</a> · <a href="https://soundcloud.com/iamcardib/ring-feat-kehlani-1" title="Ring (feat. Kehlani)" target="_blank" style="color: #cccccc; text-decoration: none;">Ring (feat. Kehlani)</a></div>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1202773675&color=%234f1d3d&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; "><a href="https://soundcloud.com/nija-music" title="Nija" target="_blank" style="color: #cccccc; text-decoration: none;">Nija</a> · <a href="https://soundcloud.com/nija-music/not-one-of-them" title="Not One Of Them" target="_blank" style="color: #cccccc; text-decoration: none;">Not One Of Them</a></div>
-
-[Monolith by Monoprice M-15 V2 15in THX Certified Ultra 1000-Watt Subwoofer Amplifier, Piano Black Finish](https://www.monoprice.com/product?p_id=42852)
-<img src="https://images.monoprice.com/productlargeimages/428523.jpg" >
-
 <img src="https://www.graffiti.org/atl/noah.jpg">
 <img src="https://www.graffiti.org/atl/civicwall.jpg">
 <img src="http://www.patrikwallner.com/wp-content/uploads/2015/10/National-Geographics-Madagascar-Pages-LOWQ-2000P.jpg">
@@ -600,20 +280,6 @@ The purpose of a soulmate is to teach us a karmic lesson, as laid out before we 
 <img src="https://www.graffiti.org/atl/joe1.jpg">
 <img src="https://www.graffiti.org/atl/eros1.jpg">
 <img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5cf66bae52aad8210f45cbaf/vsco5cf66bafc30a6.jpg">
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/F6wnB3Aa8TI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/m-a963Sd2dk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/509765250&color=%23683e30&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
-<img src="https://cdn.shopify.com/s/files/1/0921/3560/products/sb-1000-pro-pgw_1024x.png?v=1612802714">
-<img src="https://cdn.shopify.com/s/files/1/0921/3560/products/ultra-tower-surround-system-bo_1024x.png?v=1568705782">
-
-<img src="https://cdn.stamped.io/uploads/photos/231540_3281008515_1c4b3556_19ed_4221_be5d_8a7e98c14d48.jpg">
-
-## Nicholas M.Verified Buyer
-
-Sound great and as good as I expected. Still working on the positioning and I haven't reached the 40 hours of usage time yet, so excited to see how they sound going forward. To get the most out of them. You really need a good media source. Compressed media such as YouTube really limit their potential, but that is expected. I do recommend these speakers.
-
-* * *
-<img src="https://pbs.twimg.com/media/DLhss_7WAAA62IM?format=jpg&name=small" >
 
 [The X-Ecutioners Built From Scratch 2002 Full Album](https://www.youtube.com/watch?v=VAyuCnX_bK8)
 [Xecutioners - Mad Flava (Album: X-Pressions)](https://www.youtube.com/watch?v=P9E_p538Slc)
@@ -648,12 +314,6 @@ Sound great and as good as I expected. Still working on the positioning and I ha
 [TOM_JOYNER_retired_DJ_STUDY](https://www.youtube.com/watch?v=kzICmAU-kPk)
 [GT Performer BMX ReSToRE!!](https://youtu.be/BQ_esbBSsgA)
 
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/NbDuET_eKS4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/OXVpy5jaNsk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<img src="https://64.media.tumblr.com/67f31a62338fb5522e68f1314effce78/tumblr_inline_nn9yh1hnd61rop05l_1280.jpg">
-<img src="https://images.ctfassets.net/8cd2csgvqd3m/ns6OSILKJGpVQwn7Or2Zp/1c94dbfbc6270fa67ee8e82fd63496fb/HX_Timber_3.png" >
-
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/1142191735&color=%23e0c0b9&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/soulsearchanddestroy" title="SoulSearchAndDestroy" target="_blank" style="color: #cccccc; text-decoration: none;">SoulSearchAndDestroy</a> · <a href="https://soundcloud.com/soulsearchanddestroy/sets/makeup-commercials" title="Makeup Commercials (Vaporwave - Mallsoft - Electronic)" target="_blank" style="color: #cccccc; text-decoration: none;">Makeup Commercials (Vaporwave - Mallsoft - Electronic)</a></div>
 
 [Voyage (Chillwave - Synthwave - Retrowave Mix)](https://www.youtube.com/watch?v=r4J5nKy6dDw)
 ### Check_Out_This HOME::MiXTAPE::
@@ -661,83 +321,24 @@ Sound great and as good as I expected. Still working on the positioning and I ha
 [The Very Best Of... HOME (#ChillWave/#SynthWave) {V O L. 1}](https://www.youtube.com/watch?v=CIdl2DXnnAY)
 <img src="https://www.denon.com/-/media/images/denon/avr-x4700h/avr-x4700h-1a_19102020_1.jpg?w=1220&h=780" >
 
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1019285710&color=%23979590&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/home-2001" title="HOME" target="_blank" style="color: #cccccc; text-decoration: none;">HOME</a> · <a href="https://soundcloud.com/home-2001/resonance" title="Resonance" target="_blank" style="color: #cccccc; text-decoration: none;">Resonance</a></div>
-<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/101688294_1625065740988410_7569789355649138688_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=730e14&_nc_ohc=At6LsgSxsI4AX9IfbrF&_nc_ht=scontent-lax3-2.xx&oh=00_AT-kY5GQ3LkMuZo8qWeOXHFkTvVRtSE1tSqz76sTlO5rUg&oe=631A7D23" alt="Muna Perve fucked wit dis mexican flowershop, so Im still on your trail babe... im mad, but some icecream might be a good ice breaker" >
-
-### Muna, 
+### Quxube, 
 [I played this song for Sartu.](https://www.youtube.com/watch?v=0_Wsb92tT1M) But your eyes super pretty too and have a whole universe that I enjoy exploring 
 [Bombay Bicycle Club ::Your Eyes](https://www.youtube.com/watch?v=0_Wsb92tT1M)
 <img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/101098634_1623473361147648_5526736768004521984_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=730e14&_nc_ohc=xMsb1FK4MBAAX_5Fd6j&_nc_ht=scontent-lax3-2.xx&oh=00_AT8OUDIB0j4UBeUVTzwacRAPIXNwvPcygk-Ca78ctYhjYg&oe=631C906A">
 
-## Muna, you got a BeHance account?
+## Quxube, you got a BeHance account?
 <img src="https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/a27138118044407.60818531c9777.jpg"> 
 [Mr.MEAT on BeHance](https://www.behance.net/gallery/118044407/MR-MEAT?tracking_source=for_you_feed_featured_category)
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/zJBC8L3pG_Y" title="iamamiwhoami; play" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/b_KfnGBtVeA" title="Disclosure - Magnets ft. Lorde" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/azA0RJMUK0E" title="Mahalia - What You Did (feat. Ella Mai)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<div class="twoPanelSpread">
-  <div class="row">
-    <div class="panelColumn">
-      <div class="leftColumn">
-        <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/1internet.PNG" />
-        </div>
-    </div>
-    <div class="panelColumn">
-      <div class="rightColumn">
-        <a href="https://youtu.be/Tc4mRi7W2Ls" target="_blank"><img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/2internet.PNG" /> </a>
-         </div>
-    </div>
-  </div>
-</div>
+
 
 [The Internet - Girl (Official Video) ft. KAYTRANADA](https://youtu.be/zmY8mG4_3j4)
 <img src="https://i.ebayimg.com/images/g/ZOMAAOSwxdthqv16/s-l1600.jpg" /></p>
 
 [Taylor Swift - Reputation Full Album](https://www.youtube.com/watch?v=-gA86OIyK2U)
-<div class='twoPanelSpread'>
-  <div class='row'>
-    <div class='panelColumn'>
-      <div class='leftColumn'>
-        <img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/93310590_1582132758615042_6825306789781700608_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=9cjcl3UVax4AX8Nd8BC&_nc_ht=scontent-lax3-2.xx&oh=00_AT-BCP0MBCLYQT_5_JPjFYEPdW5GRpwFzxX8UPs9-jOUBw&oe=631A53D4">
-        </div>
-    </div>
-    <div class='panelColumn'>
-      <div class='rightColumn'>
-        <a href="https://youtu.be/Tc4mRi7W2Ls"  target="_blank"><img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/93310590_1582132758615042_6825306789781700608_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=9cjcl3UVax4AX8Nd8BC&_nc_ht=scontent-lax3-2.xx&oh=00_AT-BCP0MBCLYQT_5_JPjFYEPdW5GRpwFzxX8UPs9-jOUBw&oe=631A53D4"> </a>
-         </div>
-    </div>
-  </div>
-</div>
 
-<div class='twoPanelSpread'>
-  <div class='row'>
-    <div class='panelColumn'>
-      <div class='leftColumn'>
-        <img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/93256847_1582133055281679_5504436309961211904_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=ySvZa1BDNukAX-pELgP&_nc_ht=scontent-lax3-2.xx&oh=00_AT-IK8Gjj31idEhpFAhQCeqRhsE8TwyuNdB5XBjZ2X8n4A&oe=63191D7A">
-        </div>
-    </div>
-    <div class='panelColumn'>
-      <div class='rightColumn'>
-        <a href="https://youtu.be/Tc4mRi7W2Ls"  target="_blank"><img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/93376843_1582132635281721_8318145466621493248_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=IK4e7KIz3pIAX8XuFPC&_nc_ht=scontent-lax3-1.xx&oh=00_AT8mqASUZNz1P-9nueOVw4MrODh6iBXGEtKe3Bkb_s295g&oe=631AB08E"> </a>
-         </div>
-    </div>
-  </div>
-</div>
-<div class='twoPanelSpread'>
-  <div class='row'>
-    <div class='panelColumn'>
-      <div class='leftColumn'>
-        <img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/93279851_1582132658615052_1334398063434792960_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=UyQi2pHY_GEAX8luaGU&_nc_ht=scontent-lax3-2.xx&oh=00_AT_38aVY2oiNh-Sz3LhU-OYciaCnnW65gZc_zV7v2KnqDQ&oe=631C0839">
-        </div>
-    </div>
-    <div class='panelColumn'>
-      <div class='rightColumn'>
-        <a href="https://youtu.be/Tc4mRi7W2Ls"  target="_blank"><img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/93702218_1582132698615048_8440967963485405184_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=Xxw0Igm9750AX8XZlvY&_nc_ht=scontent-lax3-1.xx&oh=00_AT_AQk289243I7AGqop5jqYQk5FFWFcqAj2VeTKD6KL9jQ&oe=63198DC2"> </a>
-         </div>
-    </div>
-  </div>
-</div>
-<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/93329857_1582132705281714_2168718181059788800_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=Ap7J0vKR6JYAX8Gcnh2&_nc_oc=AQmRT1Y7RKrkqOm0FqfhEKB4S_yPoFQzXVFDS08QSR3s8jrpsd25F0vs9_CZYW1zHmc&_nc_ht=scontent-lax3-2.xx&oh=00_AT_lMCchV8BPb5coPgpAsdVTAkOqf0vlRYA4QcUvugKPjw&oe=63194EB7">
 
 <img src="https://raw.githubusercontent.com/ThakaRashard/film1/master/assets/images/CHALK_LOVER_AWR.jpg">
 
@@ -747,40 +348,14 @@ Sound great and as good as I expected. Still working on the positioning and I ha
 <a href="https://www.youtube.com/watch?v=9Ow--8nd2P4">Kilo Ali- Freak How You Want It</a>
 <img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/94713900_1592719147556403_2439179435694358528_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=sHAgD2ph8LIAX_r3C8E&_nc_ht=scontent-lax3-2.xx&oh=00_AT_pckUc5Lygedg7rlp69NW3Qqhy2nUDc3WJkm46FPVw4A&oe=631C529D" /></p>
 
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/207676026&color=%23d4b7bb&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/259184267&color=%237c8484&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
-<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/LEAViNG_BY_EKALi_FROM_MUNA_PORNO_KIDNAP_DAYS_BLURRED_OUT_FOR_US.PNG" >
-<span class="neonText">
 
-[The Love of my Life](https://moonlov3r.wordpress.com/2019/09/10/the-love-of-my-life/) </span>
+[The Love of my Life](https://moonlov3r.wordpress.com/2019/09/10/the-love-of-my-life/) 
+
 <iframe width="100%" height="494" src="https://www.youtube.com/embed/48ap9EdcdRw" title="MUNI LONG  - JUST BEGINNING | MAJORSTAGE LIVE STUDIO PERFORMANCE" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/bQfpLurfI1U" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="480" src="https://www.youtube.com/embed/Xxk4e59M8og" title="Mary J. Blige - Not Gon Cry - Music Video" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="480" src="https://www.youtube.com/embed/baZo44opr1Y" title="Tyler Perry's Daddy's Little Girls - Trailer" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<div class='twoPanelSpread'>
-  <div class='row'>
-    <div class='panelColumn'>
-      <div class='leftColumn'>
-        <img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/134415856_1825075690987413_3082916868632817853_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=c2H_9bCBCD8AX8cSanV&_nc_ht=scontent-lax3-2.xx&oh=00_AT8uIYO7qhG-rL5NFca6PLebXUzFwcAk_sjS8e9P8W3mmQ&oe=631E3197">
-        </div>
-    </div>
-    <div class='panelColumn'>
-      <div class='rightColumn'>
-        <a href="https://youtu.be/Tc4mRi7W2Ls"  target="_blank"><img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/134415856_1825075690987413_3082916868632817853_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=c2H_9bCBCD8AX8cSanV&_nc_ht=scontent-lax3-2.xx&oh=00_AT8uIYO7qhG-rL5NFca6PLebXUzFwcAk_sjS8e9P8W3mmQ&oe=631E3197"> </a>
-         </div>
-    </div>
-  </div>
-</div>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/488087001&color=%23edeceb&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/bahamadia" title="Bahamadia" target="_blank" style="color: #cccccc; text-decoration: none;">Bahamadia</a> · <a href="https://soundcloud.com/bahamadia/dialed-up-vol-2-feat-ohene" title="Dialed Up Vol. 2 (feat. Ohene Savant, Dave ghetto, Rasco, Groove Da Moast, Kev Brown, Prozack Turner, Fat Nice, Geechie Suede, &amp; Zumi)" target="_blank" style="color: #cccccc; text-decoration: none;">Dialed Up Vol. 2 (feat. Ohene Savant, Dave ghetto, Rasco, Groove Da Moast, Kev Brown, Prozack Turner, Fat Nice, Geechie Suede, &amp; Zumi)</a></div>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/488311404&color=%23bf3d2d&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/bahamadia" title="Bahamadia" target="_blank" style="color: #cccccc; text-decoration: none;">Bahamadia</a> · <a href="https://soundcloud.com/bahamadia/pep-talk" title="Pep Talk" target="_blank" style="color: #cccccc; text-decoration: none;">Pep Talk</a></div>
 [Teens have abandoned Facebook, Pew study says ::: by, Amanda Silberling](https://techcrunch.com/2022/08/11/teens-abandoned-facebook-pew-study/)
 
 <img src="https://pbs.twimg.com/media/DhVpEPHWsAEgRTR?format=jpg&name=4096x4096">
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/6VCdJyOAQYM" title="Arrested Development - Tennessee" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/511197930&color=%237d4c1d&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/littledragon" title="Little Dragon" target="_blank" style="color: #cccccc; text-decoration: none;">Little Dragon</a> · <a href="https://soundcloud.com/littledragon/lover-chanting" title="Lover Chanting" target="_blank" style="color: #cccccc; text-decoration: none;">Lover Chanting</a></div>
-<iframe width="100%" height="480" src="https://www.youtube.com/embed/yiSTcdi82S0" title="Little Dragon - Lover Chanting (Official Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<a alt="Remember_JUNE10th2019_YOU_LEFT_ME_AT_THE_ALTER_DUDE" href="https://youtu.be/fxApX5THqbA"><img src="https://www.typedifferent.com/fonts/bd_algebra/bd_algebra_example2.jpg" > </a>
-<a alt="Remember_JUNE10th2019_YOU_LEFT_ME_AT_THE_ALTER_DUDE" href="https://youtu.be/fxApX5THqbA"><img src="https://www.typedifferent.com/fonts/bd_algebra/bd_algebra_example1.jpg" > </a>
 
 [The Easy Way to Add Fonts to Your Website (Including Custom Fonts)](https://www.pagecloud.com/blog/how-to-add-custom-fonts-to-any-website)
 [Gotye - Somebody That I Used To Know (feat. Kimbra)](https://www.youtube.com/watch?v=8UVNT4wvIGY)
@@ -804,40 +379,7 @@ Sound great and as good as I expected. Still working on the positioning and I ha
 [Hero -TRAiLER(2002)](https://www.youtube.com/watch?v=erY3F-MFYYo)
 
 <iframe width="631" height="340" src="https://www.youtube.com/embed/H0b9wvJfO28" title="Enter The Dragon(1973) - Original Trailer" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-## DEAR_MUNA:: 
-[Hook: Jim James]
-Dear God, I'm trying hard to reach you
-Dear God, I see your face in all I do
-Sometimes, it's so hard to believe in
-But God, I know you have your reasons
 
-[Verse 2: Black Thought](https://genius.com/The-roots-dear-god-20-lyrics)
-Uh-huh, yeah, it's still me, one of your biggest fans
-I get off work, right back to work again
-I probably need to go ahead and have my head exam
-Look how they got me on the Def Jam payment plan
-Well, I'm in the world of entertainment and
-Tryna keep a singing man sane for the paying fans
-If I don't make it through the night, slight change of plans
-Harp strings, angel wings and praying hands
-Lord, forgive me for my shortcomings
-For going on tour and ignoring the court summons
-All I'm tryna do is live life to the fullest
-They sent my daddy to you in a barrage of bullets
-Why is the world ugly when you made it in your image?
-And why is living life such a fight to the finish?
-For this high percentage, when the sky's the limit
-A second is a minute, every hour's infinite
-<iframe width="100%" height="502" src="https://www.youtube.com/embed/32Qr5oKKP-M" title="The Roots - Dear God 2.0 ft. Monsters Of Folk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-[CSS Grid Layout model | Explained](https://linuxhint.com/css-grid-layout-model/) 
-<iframe width="100%" height="502" src="https://www.youtube.com/embed/-8BEKvoetHo" title="Oromia Pastoralist Association, Ethiopia/Kenya - Equator Prize 2015 Winner" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<img src="https://raw.githubusercontent.com/ThakaRashard/holetoanotheruniverse/gh-pages/Illustrator_v5.5_Disk_1_Installer_0199_7626Adobe_Systems_Inc.May_1994_Front_1000x.png" alt="iLLUSTRATOR_ON_FLOPPY" >
-<iframe width="100%" height="480" src="https://www.youtube.com/embed/bW-74U5xuf4" title="FX the video" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/MunaisMYWiFE.PNG" alt="##HUMA_AHMED_SELASSIE_IS_MY_SISTER_ASWELL_AS_TASHI_and_ERIKA_iN_CHRiST_SARTU_iN_ADOPTiON" >
-<iframe width="100%" height="601" src="https://www.youtube.com/embed/FJZ-BHBKyos" title="[HD] Greatest Hollywood Car Chase of All Time - Bullitt (1968)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="601" src="https://www.youtube.com/embed/TYw-xygF5Pc" title="775 hp Supercharged Bullitt Mustang Steve McQueen Edition from Steeda" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/muna_i_wanna_BULLiT_LiKE_JEFFS7.PNG">
-<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/muna_i_wanna_BULLiT_LiKE_JEFFS.PNG">
 
  <div class="neonText">
 ## Hole to another universe 
