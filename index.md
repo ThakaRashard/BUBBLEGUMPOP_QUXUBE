@@ -1,14 +1,24 @@
 
+ <div class="neonText">
+## Hole to another universe 
+ <ul>
+    <li>1 # HOLE_TO_ANOTHER_UNiVERSE###BLOG######################</li>
+    <li>2 # TO###<a href="https://soundcloud.com/amalaofficial">MY_SOUNDCLOUD#######################################</a></li>
+    <li>4 # UNiVERSALCONTACKT####################################</li>
+ </ul>
+</div> 
 
 ## Hole To Another Universe
-One day my blog will `RETURN true` when run from the [command](https://www.youtube.com/watch?v=LTz5J0VksDc) line!
 
-
+One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
+<iframe width="100%" height="350" src="https://www.youtube.com/embed/S0Q4gqBUs7c" title="Bonobo - Kerala (Official Audio)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/643348296&color=%2312bad0&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-weight: 100;"><a href="https://soundcloud.com/bonobo" title="bonobo" target="_blank" style="color: #cccccc; text-decoration: none;">bonobo</a> · <a href="https://soundcloud.com/bonobo/linked" title="Linked" target="_blank" style="color: #cccccc; text-decoration: none;">Linked</a></div>
 
 ## The Vision Of Rassan Medley: Dedication / Roll On Kirk :: HiFi_CLASSiCKS4AUDiOPHiLES
 
-<iframe width="100%" height="539" src="https://www.youtube.com/embed/n7Wjkg7UpK8" title="The Vision Of Rassan Medley: Dedication / Roll On Kirk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="500" src="https://www.youtube.com/embed/n7Wjkg7UpK8" title="The Vision Of Rassan Medley: Dedication / Roll On Kirk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+[Bonobo - Linked](https://www.youtube.com/watch?v=0W-a11Tdk7Y)
 [WAR- SLIPPIN INTO DARKNESS](https://www.youtube.com/watch?v=RFSWW4O6QNM)
 [Eric Burdon - Declares War (1970 Full Album)](https://www.youtube.com/watch?v=OhuX8fFHP6I)
 [The Jones Girls - Nights Over Egypt ](https://www.youtube.com/watch?v=pzxwZ6wjDAM) 
@@ -66,6 +76,16 @@ https://www.youtube.com/user/MiamiBassHistory
     <a href="https://youtube.com/watch?v=YwSU0rcVTaE%20%20%3C" alt="Buju Banton - Wanna Be Loved (Official Music Video)">Buju Banton - Wanna Be Loved (Official Music Video)</a>
     <a href="https://youtu.be/6M-ppiL7EPM" alt="Beenie Man- Bookshelf- Bookshelf Riddim"> Beenie Man- Bookshelf- Bookshelf Riddim</a>
     <a alt="Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)" href="https://www.youtube.com/watch?v=X1RgygADUpE&t=5s">Beenie Man ‎– Crazy Notion (Beenie Man ‎– Art And Life, Virgin, 2000)</a>
+
+ <div class="neonText">
+## Hole to another universe 
+ <ul>
+    <li>1 # HOLE_TO_ANOTHER_UNiVERSE###BLOG######################</li>
+    <li>2 # TO###MY_RESUME#######################################</li>
+    <li>3 # ANOTHER###SANDBOX####################################</li>
+    <li>4 # UNiVERSALCONTACKT####################################</li>
+ </ul>
+</div>     
 
 ## DEAR_QUXUBE ##
 <iframe width="100%" height="330" src="https://www.youtube.com/embed/dOWtNx16yYY" title="The Jets - Youve Got It All 1986" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
@@ -433,12 +453,6 @@ The purpose of a soulmate is to teach us a karmic lesson, as laid out before we 
     <li>3 # ANOTHER###SANDBOX####################################</li>
     <li>4 # UNiVERSALCONTACKT####################################</li>
  </ul>
- {% highlight python %}
-1 # HOLE_TO_ANOTHER_UNiVERSE##############################
-2 # TO####################################################
-3 # ANOTHER###############################################
-4 # UNiVERSE##############################################
-{% endhighlight %}
 </div> 
 
 
