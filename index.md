@@ -7,6 +7,8 @@ One day my blog will `RETURN true` when run from the [command](https://www.youtu
 
 
 ## DEAR_QUXUBE ##
+<iframe width="100%" height="333" src="https://www.youtube.com/embed/tY2KCl79Do8" title="THE LITTLE SHOP OF HORRORS (1960) Official Trailer" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="333" src="https://www.youtube.com/embed/jPZVjxWMLpo" title="Little Shop of Horrors Intro w/lyrics" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe width="100%" height="350" src="https://www.youtube.com/embed/Z1l5PFs2eTc" title="House Party - Dance off - long version - Ain't my type of hype" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## CRUiSiN_CALi_SOUNDS_4_PCH_US1::DATE_IDEAS 
