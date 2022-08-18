@@ -11,6 +11,8 @@
 ## Hole To Another Universe
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
+
+<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/screenshots/QUXUBE_IS_SCRAMBLED_AGAIN.PNG">
 <div class="twoPanelSpread">
   <div class="row">
     <div class="panelColumn">
