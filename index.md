@@ -12,6 +12,10 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+
+
+
+ <a href="https://www.youtube.com/watch?v=u2nwZtlPvkk&list=PLJ6gtl1sX46ruL5ZAFukDifpKXd0t7jA8" ><img src="https://i.discogs.com/t42ahrCuj9301YElSzMTziCea_002-8xr6p3Z4MgmfU/rs:fit/g:sm/q:90/h:598/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE2Mjk0/ODQtMTUyNTkwMTYz/Mi0xNDI4LmpwZWc.jpeg"></a>
  <a href="https://youtu.be/0_Wsb92tT1M" ><img src="https://i.pinimg.com/736x/70/64/51/7064512cd228624a7b4d0fac19f0a84f--bombay-different-kinds.jpg"></a>
 <div class="twoPanelSpread">
   <div class="row">
