@@ -17,7 +17,7 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
 
 <iframe width="100%" height="400" src="https://www.youtube.com/embed/y8OtzJtp-EM" title="Immigrant Song (Remaster)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-
+<img src="https://i.etsystatic.com/14025475/r/il/b3da1a/1424872253/il_fullxfull.1424872253_efwn.jpg">
 <div class="twoPanelSpread">
   <div class="row">
     <div class="panelColumn">
