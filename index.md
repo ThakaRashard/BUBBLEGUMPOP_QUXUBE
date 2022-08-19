@@ -13,6 +13,44 @@
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
 
+
+
+<iframe width="100%" height="400" src="https://www.youtube.com/embed/y8OtzJtp-EM" title="Immigrant Song (Remaster)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+
+<div class="twoPanelSpread">
+  <div class="row">
+    <div class="panelColumn">
+      <div class="leftColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://assets.fontsinuse.com/static/use-media-items/116/115183/upto-700xauto/5eec6213/1970-dodge-charger-brochure-6.webp"></a>
+        </div>
+    </div>
+    <div class="panelColumn">
+      <div class="rightColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://assets.fontsinuse.com/static/use-media-items/116/115184/upto-700xauto/5eec621c/1970-dodge-charger-brochure-7.webp"></a>
+         </div>
+    </div>
+  </div>
+</div>
+
+<div class="twoPanelSpread">
+  <div class="row">
+    <div class="panelColumn">
+      <div class="leftColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://assets.fontsinuse.com/static/use-media-items/116/115181/upto-700xauto/5eec6202/1970-dodge-charger-brochure-4.webp"></a>
+        </div>
+    </div>
+    <div class="panelColumn">
+      <div class="rightColumn">
+
+<a href="https://soundcloud.com/oddlingmusic/voyage?si=bb844b65fa1c444cb60b6b9e175262fc&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing"><img src="https://assets.fontsinuse.com/static/use-media-items/116/115182/upto-700xauto/5eec620d/1970-dodge-charger-brochure-5.webp"></a>
+         </div>
+    </div>
+  </div>
+</div>
 <div class="twoPanelSpread">
   <div class="row">
     <div class="panelColumn">
@@ -29,8 +67,6 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
     </div>
   </div>
 </div>
-
-<iframe width="100%" height="400" src="https://www.youtube.com/embed/y8OtzJtp-EM" title="Immigrant Song (Remaster)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <img src="https://www.scalemates.com/products/img/1/4/4/1100144-40688-43-pristine.jpg">
 <img src="https://www.motorcities.org/images/SOTW_8-18-2021/1970_Dodge_Charger_brochure_cover_Chrysler_Archives_RESIZED_1.jpg">
 <img src="https://www.motorcities.org/images/SOTW_4-6-2022/1967_Plymouth_Barracuda_Chrysler_Archives_1.jpg">
