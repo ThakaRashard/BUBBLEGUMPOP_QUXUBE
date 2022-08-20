@@ -12,7 +12,10 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<a href="https://www.youtube.com/watch?v=WffJfQPp7kE" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://media.pitchfork.com/photos/5929c458ea9e61561daa811a/1:1/w_600/0bc6101d.jpg" ></a>
+<a href="https://www.youtube.com/watch?v=kHBHDWpK1yo" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://static.wikia.nocookie.net/hip-hop-music/images/b/b0/Operation_Doomsday.jpg/revision/latest?cb=20141202062631" ></a>
 
+[Doomsday · MF DOOM · Pebbles The Invisible Girl](https://www.youtube.com/watch?v=kHBHDWpK1yo)
 <div class='twoPanelSpread'>
   <div class='row'>
     <div class='panelColumn'>
