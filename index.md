@@ -12,6 +12,16 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+
+<a href="https://youtu.be/Rr46FS7tkk4"> <img src="https://i.scdn.co/image/ab67616d0000b2733a76edacefe2e7a589222787"></a>
+
+## GANGSTARR :: MOMENT_OF_TRUTH
+They say it's lonely at the top in whatever you do
+You always gotta watch motherfuckers around you
+Nobody's invincible, no plan is foolproof
+We all must meet our `moment of truth`
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/5f6Nz2v1DESbpu1NerEql2?utm_source=generator&theme=0" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
+
 <iframe width="100%" height="500" src="https://www.youtube.com/embed/fbKcDDH_g5o" title="The Boondocks S01E06 The Story of Gangstalicious" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <a href="https://www.youtube.com/watch?v=mEgTtsHUnrQ"><img src="https://m.media-amazon.com/images/I/81BTimpYB2L._SL1300_.jpg"></a>
 <div class='twoPanelSpread'>
