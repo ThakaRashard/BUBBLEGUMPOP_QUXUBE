@@ -44,7 +44,8 @@ PLAYLiST to ground you in my Swampy southern shit, and grimey NYC shit... Somali
 [Master P, UGK & Silkk - Playas From The South (ViDEO)](https://www.youtube.com/watch?v=3l_aVUxqX-k)
 <a href="https://youtu.be/qgYmzkSqo9w" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://i.discogs.com/mWCBJLqUdJuj8eJutqAPg9yJ3qcrj9xzBu9XVrL8m7U/rs:fit/g:sm/q:90/h:464/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTk2NTk4/Mi0xNTI2NDczODI3/LTg1NTAuanBlZw.jpeg" ></a>
 <a href="https://www.youtube.com/watch?v=WffJfQPp7kE" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://media.pitchfork.com/photos/5929c458ea9e61561daa811a/1:1/w_600/0bc6101d.jpg" ></a>
-<a href="https://www.youtube.com/watch?v=kHBHDWpK1yo" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://static.wikia.nocookie.net/hip-hop-music/images/b/b0/Operation_Doomsday.jpg/revision/latest?cb=20141202062631" ></a>
+<a href="https://www.youtube.com/watch?v=kHBHDWpK1yo" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://cdn.shopify.com/s/files/1/0130/8714/6043/products/MFDoom-MM..Food_65213357-79b4-4dba-8cea-06afa398dfd3_580x.png?v=1634146006" ></a>
+<a href="https://www.youtube.com/watch?v=kHBHDWpK1yo" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://images.squarespace-cdn.com/content/v1/56858337cbced60d3b293aef/4b31545a-419a-42de-a949-20f9e166d92c/Albumism_MF_DOOM_Operation_Doomsday_MainImage_16x9.jpg?format=1000w" ></a>
 
 [Doomsday · MF DOOM · Pebbles The Invisible Girl](https://www.youtube.com/watch?v=kHBHDWpK1yo)
 <div class='twoPanelSpread'>
