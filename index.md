@@ -13,13 +13,36 @@
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
 
+<div class='twoPanelSpread'>
+  <div class='row'>
+    <div class='panelColumn'>
+      <div class='leftColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="http://images.genius.com/340c10c3f16222c64bf8912f2231247b.500x500x1.jpg" ></a>
+      </div>
+    </div>
+    <div class='panelColumn'>
+      <div class='rightColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="http://images.genius.com/340c10c3f16222c64bf8912f2231247b.500x500x1.jpg" ></a>
+      </div>
+    </div>
+  </div>
+</div>
+
+[Exhibit C · Jay Electronica · Justin Smith · Timothy Thedford](https://www.youtube.com/watch?v=b0c9A74BmcU)
+[Eternal Sunshine (The Pledge) · Jay Electronica](https://www.youtube.com/watch?v=Uq6cHsK5atk)
+[Royalty · Gang Starr · K-Ci Hailey · Jojo Hailey](https://www.youtube.com/watch?v=fzrLBihM_Dw)
+[Discipline · Gang Starr · Total](https://www.youtube.com/watch?v=mkIQn25X838)
+[Jay electronica - Exhibit B Feat. Mos Def](https://www.youtube.com/watch?v=wAtnK8BFUV0)
+
 <a href="https://youtu.be/Rr46FS7tkk4"> <img src="https://i.scdn.co/image/ab67616d0000b2733a76edacefe2e7a589222787"></a>
 
 ## GANGSTARR :: MOMENT_OF_TRUTH
 They say it's lonely at the top in whatever you do
 You always gotta watch motherfuckers around you
 Nobody's invincible, no plan is foolproof
-We all must meet our `moment of truth`
+We all must meet our `moment of truth` - GURU
+
+
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/5f6Nz2v1DESbpu1NerEql2?utm_source=generator&theme=0" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
 
 <iframe width="100%" height="500" src="https://www.youtube.com/embed/fbKcDDH_g5o" title="The Boondocks S01E06 The Story of Gangstalicious" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
