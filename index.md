@@ -15,6 +15,9 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
 ## Dear_QUXUBE,
 PLAYLiST to ground you in my Swampy southern shit, and grimey NYC shit... Somalia is Arid Desert like this place... lets cross paths more naturally
 
+[TRICK DADDY - AMERICA (FEAT. SOCIETY)](https://www.youtube.com/watch?v=37tQzUsaV5g)
+<a href="https://youtu.be/37tQzUsaV5g" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://d1w8cc2yygc27j.cloudfront.net/2066424405264610391/-6432515160956914739.jpg" ></a>
+
 <a href="https://youtu.be/xzDXxSG2syQ" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://i.discogs.com/AOHDFMkD1w-q2UCybZ5pn-DdUBkR7h_6S_dpoFRKWoc/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE1Nzgx/MTUzLTE1OTc2Nzg1/NDEtMjg5MC5qcGVn.jpeg" ></a>
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/ns_DAQ8re-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://www.rapmusicguide.com/amass/images/inventory/2864/Young%20Bleed%20-%20My%20Balls%20And%20My%20Word%20side%201.jpg" ></a>
