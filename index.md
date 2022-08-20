@@ -13,8 +13,9 @@
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
 ## Dear_QUXUBE,
-PLAYLiST to ground you in my Swampy southern shit, and grimey NYC shit... Somalia is Arid Desert like this place... lets cross paths more naturally
+PLAYLiST to ground you in my Swampy southern shit, and grimey NYC shit... Atlanta is foresty moutainy foothills of Appalacia and Somalia is Arid Desert like this place... lets cross paths more naturally! I feel like Im home the trees are telepathic as well as the cactuses... The tree near my sleeping spot grows all over the Horn of Africa and I am sleeping and moving very traditionally by the sun... So I think im on a adjusted farmers schedule with some corporate and Corporate_DEV/OPS imflueces. Not to mention being really dilligent in Jehovahs Witnesses...TTYS
 
+[2 Live Crew Banned Banned In The U S A PLAY_COMFORTABLY_LOUD](https://www.youtube.com/watch?v=dFKcJIIR0yM)
 [TRICK DADDY - AMERICA (FEAT. SOCIETY)](https://www.youtube.com/watch?v=37tQzUsaV5g)
 <a href="https://youtu.be/37tQzUsaV5g" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://d1w8cc2yygc27j.cloudfront.net/2066424405264610391/-6432515160956914739.jpg" ></a>
 
@@ -48,6 +49,8 @@ PLAYLiST to ground you in my Swampy southern shit, and grimey NYC shit... Somali
 <a href="https://www.youtube.com/watch?v=kHBHDWpK1yo" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://images.squarespace-cdn.com/content/v1/56858337cbced60d3b293aef/4b31545a-419a-42de-a949-20f9e166d92c/Albumism_MF_DOOM_Operation_Doomsday_MainImage_16x9.jpg?format=1000w" ></a>
 
 [Doomsday · MF DOOM · Pebbles The Invisible Girl](https://www.youtube.com/watch?v=kHBHDWpK1yo)
+[2 Live Crew - Mr. Mixx Turnable Show, Pt. 1](https://www.youtube.com/watch?v=onyvU26EyBs)
+
 <div class='twoPanelSpread'>
   <div class='row'>
     <div class='panelColumn'>
