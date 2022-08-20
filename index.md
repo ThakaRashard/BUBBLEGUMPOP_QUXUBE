@@ -15,6 +15,27 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
 ## Dear_QUXUBE,
 PLAYLiST to ground you in my Swampy southern shit, and grimey NYC shit... Somalia is Arid Desert like this place... lets cross paths more naturally
 
+<a href="https://youtu.be/xzDXxSG2syQ" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://i.discogs.com/AOHDFMkD1w-q2UCybZ5pn-DdUBkR7h_6S_dpoFRKWoc/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE1Nzgx/MTUzLTE1OTc2Nzg1/NDEtMjg5MC5qcGVn.jpeg" ></a>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/ns_DAQ8re-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://www.rapmusicguide.com/amass/images/inventory/2864/Young%20Bleed%20-%20My%20Balls%20And%20My%20Word%20side%201.jpg" ></a>
+<div class='twoPanelSpread'>
+  <div class='row'>
+    <div class='panelColumn'>
+      <div class='leftColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://www.rapmusicguide.com/amass/images/inventory/2864/1-Young%20Bleed%20-%20My%20Balls%20And%20My%20Word.jpg" ></a>
+      </div>
+    </div>
+    <div class='panelColumn'>
+      <div class='rightColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://i.discogs.com/dld6OSlUVsU439nDXTjfPdMdvDOW5EDTnkUWhPqI0mU/rs:fit/g:sm/q:90/h:590/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE1Njgw/NzI1LTE1OTU3OTYz/NDUtNzM3OC5qcGVn.jpeg" ></a>
+      </div>
+    </div>
+  </div>
+</div>
+<a href="https://youtu.be/CPcGQy61uBc" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://preview.redd.it/sqv28p4gijc61.jpg?width=640&crop=smart&auto=webp&s=d6b81ae1629f1dfb54c3b83c6f859eed79fc38f3" ></a>
+
+<a href="https://youtu.be/CPcGQy61uBc" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://music.metason.net/image?fn=R-3422492.jpeg&sc=564" ></a>
+
 <a href="https://www.youtube.com/watch?v=WffJfQPp7kE" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://www.rapmusicguide.com/amass/images/inventory/15617/TRU%20-%20Tru%202%20Da%20Game%20open.jpg" ></a>
 
 [Master P, UGK & Silkk - Playas From The South (ViDEO)](https://www.youtube.com/watch?v=3l_aVUxqX-k)
