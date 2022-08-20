@@ -12,6 +12,24 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<iframe width="100%" height="500" src="https://www.youtube.com/embed/g4h8o4pWECI" title="Tekken 7 – E3 Trailer | XB1, PS4, PC" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="500" src="https://www.youtube.com/embed/fbKcDDH_g5o" title="The Boondocks S01E06 The Story of Gangstalicious" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<div class="twoPanelSpread">
+  <div class="row">
+    <div class="panelColumn">
+      <div class="leftColumn">
+
+<a href="https://youtu.be/q6-SFIAzFnA"><img src="https://classicalbumsundays.com/wp-content/uploads/2019/10/71eCAkU-gaL._SL1500_.jpg"></a>
+        </div>
+    </div>
+    <div class="panelColumn">
+      <div class="rightColumn">
+
+<a href="https://youtu.be/q6-SFIAzFnA"><img src="https://m.media-amazon.com/images/I/81ufJLzf+fL._SL1252_.jpg"></a>
+         </div>
+    </div>
+  </div>
+</div>
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/8Qimg_q7LbQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
