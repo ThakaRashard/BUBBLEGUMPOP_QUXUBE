@@ -11,20 +11,8 @@
 ## Hole To Another Universe
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
-<div class='twoPanelSpread'>
-  <div class='row'>
-    <div class='panelColumn'>
-      <div class='leftColumn'>
-       <a href="https://www.wagesfuneralhome.com/obituaries/Muna-Ahmed/#!/PhotosVideos/Album-506573/Photo-16073847" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://s3.amazonaws.com/storage.lifetributes.com/Tributes/5110628/Albums/506573/Muna-Ahmed-16073847.jpg" ></a>
-      </div>
-    </div>
-    <div class='panelColumn'>
-      <div class='rightColumn'>
-       <a href="https://www.wagesfuneralhome.com/obituaries/Muna-Ahmed/#!/PhotosVideos/Album-506573/Photo-16073847" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://s3.amazonaws.com/storage.lifetributes.com/Tributes/5110628/Albums/506573/Muna-Ahmed-16073847.jpg" ></a>
-      </div>
-    </div>
-  </div>
-</div>
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/582164082&color=%235c5c4c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/hoodscienceentertainment" title="HoodScienceEntertainment" target="_blank" style="color: #cccccc; text-decoration: none;">HoodScienceEntertainment</a> · <a href="https://soundcloud.com/hoodscienceentertainment/kmd-black-bastards-full-album" title="KMD - Black Bastards (FULL ALBUM)" target="_blank" style="color: #cccccc; text-decoration: none;">KMD - Black Bastards (FULL ALBUM)</a></div>
 ## Dear_QUXUBE,
 PLAYLiST to ground you in my Swampy southern shit, and grimey NYC shit... Atlanta is foresty moutainy foothills of Appalacia and Somalia is Arid Desert like this place... lets cross paths more naturally! I feel like Im home the trees are telepathic as well as the cactuses... The tree near my sleeping spot grows all over the Horn of Africa and I am sleeping and moving very traditionally by the sun... So I think im on a adjusted farmers schedule with some corporate and Corporate_DEV/OPS imflueces. Not to mention being really dilligent in Jehovahs Witnesses...TTYS
 
