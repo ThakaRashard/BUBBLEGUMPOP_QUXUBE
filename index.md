@@ -11,7 +11,20 @@
 ## Hole To Another Universe
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
-
+<div class='twoPanelSpread'>
+  <div class='row'>
+    <div class='panelColumn'>
+      <div class='leftColumn'>
+       <a href="https://www.wagesfuneralhome.com/obituaries/Muna-Ahmed/#!/PhotosVideos/Album-506573/Photo-16073847" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://s3.amazonaws.com/storage.lifetributes.com/Tributes/5110628/Albums/506573/Muna-Ahmed-16073847.jpg" ></a>
+      </div>
+    </div>
+    <div class='panelColumn'>
+      <div class='rightColumn'>
+       <a href="https://www.wagesfuneralhome.com/obituaries/Muna-Ahmed/#!/PhotosVideos/Album-506573/Photo-16073847" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://s3.amazonaws.com/storage.lifetributes.com/Tributes/5110628/Albums/506573/Muna-Ahmed-16073847.jpg" ></a>
+      </div>
+    </div>
+  </div>
+</div>
 ## Dear_QUXUBE,
 PLAYLiST to ground you in my Swampy southern shit, and grimey NYC shit... Atlanta is foresty moutainy foothills of Appalacia and Somalia is Arid Desert like this place... lets cross paths more naturally! I feel like Im home the trees are telepathic as well as the cactuses... The tree near my sleeping spot grows all over the Horn of Africa and I am sleeping and moving very traditionally by the sun... So I think im on a adjusted farmers schedule with some corporate and Corporate_DEV/OPS imflueces. Not to mention being really dilligent in Jehovahs Witnesses...TTYS
 
