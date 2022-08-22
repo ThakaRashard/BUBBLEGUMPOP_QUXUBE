@@ -12,6 +12,8 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<iframe width="100%" height="480" src="https://www.youtube.com/embed/ywP5FA_Agc0" title="Family Life (1949)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## GRAPHiC_DESiGN_RESOURCES
 [Overcoming Imposter Syndrome By Developing Your Own Guiding Principles ::even4pplWHOknewUiNahPassLifetime](https://www.smashingmagazine.com/2022/07/overcoming-imposter-syndrome-developing-guiding-principles/)
 Design is one of those disciplines that has a very low barrier to entry. But what isn’t so easy is acquiring the softer skills that you’ll need when entering this job market. Unfortunately, not everyone has access to a mentor or a guide, which is why we often have to rely on “working it out” by ourselves. In this article, Luis Ouriach tries to help you in this task so that you can walk into the design critique meetings with more confidence and really deliver the best representation of your ideas.
