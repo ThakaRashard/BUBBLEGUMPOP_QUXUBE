@@ -13,6 +13,9 @@
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
 
+<img src="https://i.discogs.com/7X9ySpTwBvCmZidOQ7VA6ihukU9EUq97UWWZS3Vvzfk/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTMzNjYx/NzgtMTMyNzUyODg1/My5qcGVn.jpeg">
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/3eva44waMaCOJMWbbarsuH?utm_source=generator&theme=0" width="100%" height="300" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 <img src="http://4.bp.blogspot.com/-oE2Wa_bSsDw/TVbs8W9NfjI/AAAAAAAACAI/gfadMUahlQk/s1600/1970+Dodge.jpg">
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/ywP5FA_Agc0" title="Family Life (1949)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
