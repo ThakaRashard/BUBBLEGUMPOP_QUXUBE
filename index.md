@@ -12,6 +12,8 @@
 
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<iframe width="100%" height="480" src="https://www.youtube.com/embed/86vaOUEjWzM" title="Mariya Takeuchi - Plastic Love 竹内 まりや" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+[My Favorite Things](https://www.youtube.com/watch?v=rqpriUFsMQQ)
 [1942 HITS ARCHIVE: Don’t Sit Under The Apple Tree - Glenn Miller (Marion-Tex-Modernaires, vocal)](https://www.youtube.com/watch?v=uSPHfbHy2Bw)
 [BEENIE MAN - LIFE STORY](https://www.youtube.com/watch?v=6Y4SP0gV1UQ)
 
