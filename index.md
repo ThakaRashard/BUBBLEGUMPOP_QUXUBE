@@ -16,7 +16,7 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
 <img src="https://m.media-amazon.com/images/I/91EbuWAYTyL._SL1500_.jpg">
 
 <img src="https://i.pinimg.com/originals/03/4b/42/034b4275d538b1c2fa43c5dc739e89e0.jpg">
-<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/6Hiv5Xc8ltOoFvnKXOIdJJ?utm_source=generator" width="100%" height="2900" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/6Hiv5Xc8ltOoFvnKXOIdJJ?utm_source=generator" width="100%" height="290" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <img src="https://i.discogs.com/7X9ySpTwBvCmZidOQ7VA6ihukU9EUq97UWWZS3Vvzfk/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTMzNjYx/NzgtMTMyNzUyODg1/My5qcGVn.jpeg">
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/3eva44waMaCOJMWbbarsuH?utm_source=generator&theme=0" width="100%" height="300" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
