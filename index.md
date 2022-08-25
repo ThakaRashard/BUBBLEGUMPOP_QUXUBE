@@ -9,10 +9,96 @@
 </div> 
 
 ## Hole To Another Universe
-
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
+
+
+
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/895314484&color=%239c7434&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/temsbaby" title="Tems" target="_blank" style="color: #cccccc; text-decoration: none;">Tems</a> · <a href="https://soundcloud.com/temsbaby/free-mind" title="Free Mind" target="_blank" style="color: #cccccc; text-decoration: none;">Free Mind</a></div>
+<img src="https://video-images.vice.com/articles/584056ba5460bf4f35a54b57/lede/america-is-dying-slowly-resized-2.jpg">
+
+[America Is Dying Slowly Full](https://www.youtube.com/watch?v=mPCHG2VB4Hc)
+[20 Years Ago, Coolio, De La Soul, and the Rest of Rap Chipped in to Raise HIV/AIDS Awareness](https://www.vice.com/en/article/8gxb3b/20-years-ago-coolio-de-la-soul-and-the-rest-of-rap-chipped-in-to-raise-hivaids-awareness)
+
+According to the Centers for Disease Control and Prevention, there are almost 45,000 new cases of HIV each year in the US. Beyond the statistics, there are numerous families, and communities forever changed by this disease—and in some ways, still haunted. Yet things are much better than they once were. There are at least 25 HIV medications on the market, and combination antiretroviral therapy has made the virus a manageable, chronic condition...[READ_MORE](https://www.vice.com/en/article/8gxb3b/20-years-ago-coolio-de-la-soul-and-the-rest-of-rap-chipped-in-to-raise-hivaids-awareness)
+
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/02BXFyOtXZym9zNvfrdEE5?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+
+
+<div class='twoPanelSpread'>
+  <div class='row'>
+    <div class='panelColumn'>
+      <div class='leftColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/131921978_1816024288559220_433705209210298721_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=730e14&_nc_ohc=ppzhmarKm0MAX-S9LGZ&_nc_ht=scontent-lax3-2.xx&oh=00_AT_AOYY9OCHi3ZSoXbOOBZw67HsgJ_8xn6logITzAU4feQ&oe=6316A8C8" ></a>
+      </div>
+    </div>
+    <div class='panelColumn'>
+      <div class='rightColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/131921978_1816024288559220_433705209210298721_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=730e14&_nc_ohc=ppzhmarKm0MAX-S9LGZ&_nc_ht=scontent-lax3-2.xx&oh=00_AT_AOYY9OCHi3ZSoXbOOBZw67HsgJ_8xn6logITzAU4feQ&oe=6316A8C8" ></a>
+      </div>
+    </div>
+  </div>
+</div>
+<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/133264068_1822580181236964_1151571671064260352_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=730e14&_nc_ohc=8AkYRjYGwkUAX8xiYM6&_nc_ht=scontent-lax3-2.xx&oh=00_AT8ky0f_YDjr_1_L3bUKqdCfU89p0-gFYTnayUMz4lzZEQ&oe=63156515">
+
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/133356969_1822580227903626_9089906873599385210_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=730e14&_nc_ohc=0sDCrdnrEgcAX-F3G9Z&_nc_ht=scontent-lax3-1.xx&oh=00_AT_QXmYtMfa7qtokUGRkAgDF1WA2lrQBQMmWPhqDfbCp-w&oe=63165386">
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/133820263_1822580204570295_4688306556210493856_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=730e14&_nc_ohc=4XT2CBZaWsIAX_Wi7k-&_nc_ht=scontent-lax3-1.xx&oh=00_AT8fDSVom8v0NF4dW6FY7G7ePg2aCNsRJaSbniEwxgLLmw&oe=63180C5B">
+<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/133644109_1822580247903624_1222010712085889415_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=730e14&_nc_ohc=KxkczsqPWTYAX9uhZ8T&_nc_ht=scontent-lax3-2.xx&oh=00_AT_4btvZJuwn59MymokfmZpMXvJZCDdK1aVdC__d2ypE1Q&oe=6317135A">
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/133980315_1822580354570280_6058692718229128176_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=730e14&_nc_ohc=QLGULuthW3IAX-GgFO1&_nc_oc=AQliqgZIc6uysv5ol-hSvbH1H88t7Byv5EqRIvSOs-Lz-c9-hhDhxy15_ltUFlcSn0A&_nc_ht=scontent-lax3-1.xx&oh=00_AT9E4C218hyc4xmmwoqN0gf_nkjoV9_ums8JBt7YVmSnHg&oe=63167659">
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/133980315_1822580354570280_6058692718229128176_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=730e14&_nc_ohc=QLGULuthW3IAX-GgFO1&_nc_oc=AQliqgZIc6uysv5ol-hSvbH1H88t7Byv5EqRIvSOs-Lz-c9-hhDhxy15_ltUFlcSn0A&_nc_ht=scontent-lax3-1.xx&oh=00_AT9E4C218hyc4xmmwoqN0gf_nkjoV9_ums8JBt7YVmSnHg&oe=63167659">
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/132802332_1816879455140370_2544643186831573601_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=730e14&_nc_ohc=Sqm7URXcc70AX_6dI4g&_nc_ht=scontent-lax3-1.xx&oh=00_AT-50eeldMH5rxXPqVtqHIR5TYnmX3xEMUmMfUmEpQC0FQ&oe=6318E1A9">
+<img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5cf66bae52aad8210f45cbaf/vsco5cf66bafc30a6.jpg">
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/131311572_1809548145873501_2317659640152677028_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=5wRrnGixRhgAX8I0O6y&_nc_ht=scontent-lax3-1.xx&oh=00_AT9WMky4_vvHIi6vY-eI-ELqgUdpXJQO4OxzZX2EqqiiRQ&oe=6315EA6D">
+<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/131182446_1809503375877978_7577996265633068042_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=08kEakUm2_sAX8Lx4iu&_nc_oc=AQn4sLALpmoAjocKtkKB8BgMt4ZkKEmVlQHGGxkgMIySgFKgeu8feO4GO_7JtyzexbIZ_0HdLvD_JEElbojLbnEV&_nc_ht=scontent-lax3-2.xx&oh=00_AT9LkNdvNuq2KTTtJ7P77UvfpDPvtaGFcBE_i_7wYES--A&oe=631764B7">
+<img src="https://lastfm.freetls.fastly.net/i/u/770x0/ebdd35113f4be57737d6946c0593a343.jpg#ebdd35113f4be57737d6946c0593a343">
+<div class='twoPanelSpread'>
+  <div class='row'>
+    <div class='panelColumn'>
+      <div class='leftColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://www.tribalgear.com/global/wp-content/uploads/JOKER_FLAG_MAIN.jpg" ></a>
+      </div>
+    </div>
+    <div class='panelColumn'>
+      <div class='rightColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://www.tribalgear.com/global/wp-content/uploads/JOKER_FLAG_MAIN.jpg" ></a>
+      </div>
+    </div>
+  </div>
+</div>
+
+
+
+
+<div class='twoPanelSpread'>
+  <div class='row'>
+    <div class='panelColumn'>
+      <div class='leftColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5c9d3b13e58b91563424b6ca/vsco5c9d3b14e05d4.jpg" ></a>
+      </div>
+    </div>
+    <div class='panelColumn'>
+      <div class='rightColumn'>
+       <a href="https://youtu.be/b0c9A74BmcU" alt="AMERiCA_IS_DYING_SLOWY_TO_PROSTITUTION"><img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5c9d3b13e58b91563424b6ca/vsco5c9d3b14e05d4.jpg" ></a>
+      </div>
+    </div>
+  </div>
+</div>
+<img src="https://i.pinimg.com/originals/92/ee/27/92ee27bdab6f1b4ce1ce78e08fbdb6a4.gif">
+<img src="https://im.vsco.co/aws-us-west-2/12f8b0/56497/5fc4a8c81d78312109000003/vsco5fc4a8cb61459.jpg">
+<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/104588298_1643394085822242_3137382172370219359_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=730e14&_nc_ohc=K9gIfiQP5BIAX8ChW1g&_nc_ht=scontent-lax3-2.xx&oh=00_AT-taqrAAkNgGzXHGIDu8icUQYLm9BaJr2-GeSkzy5mXkg&oe=6312BF9C">
+<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/121964483_1760059737489009_1161224290892981810_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=730e14&_nc_ohc=YZxeREp8_MQAX9Lnn9U&_nc_ht=scontent-lax3-2.xx&oh=00_AT-aoGdeds_l8q7A00j0Rin9MlByIKJeS92_BV8fdUffWg&oe=6317D5CD">
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/120750735_1746341688860814_3372622645216138140_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=730e14&_nc_ohc=AWW1jkN78GgAX-ogQqh&_nc_oc=AQnYxzotwY9DGax7-LAm8qMMyydXYuFOKQLMG3h7vXtCrsKyXjZm9jtq95erV5MbtWU&_nc_ht=scontent-lax3-1.xx&oh=00_AT-j8td17Ev-CFU_ihTJsansGKjUmxTnJNwd_9zWzYQLQA&oe=631A06C2">
+<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/120999468_1746355385526111_4116736716770605603_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=730e14&_nc_ohc=pgKEIoVvmREAX--wyc_&_nc_ht=scontent-lax3-2.xx&oh=00_AT-UvmhpzKgQ3-doCXrhcd9wzstzNCzJiLueqig-XhO-eA&oe=6319B837">
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/119836011_1728470890647894_4547987481473672839_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=730e14&_nc_ohc=wZzYnSPcc30AX_3hIRn&_nc_ht=scontent-lax3-1.xx&oh=00_AT-r8-PDPF61G_wplXna75jlI2SAcpxcHj3F8Bj9b99D3w&oe=6316921D">
+<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/96539081_1607142046114113_3462614913346699264_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=qFqZR8ULgKwAX9WWjRa&_nc_ht=scontent-lax3-2.xx&oh=00_AT-d6NhvXA8TlutoMYkH1FuLZMNas54REf36gxuXEEITuQ&oe=63193CD0">
+<img src="https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/96454281_1608568659304785_4477456054065561600_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=cME9Om0CEj8AX8__A2H&_nc_ht=scontent-lax3-2.xx&oh=00_AT937cmgIAgP-3--orJO5AiHA6h2NfEod9vlM_7QF8ricg&oe=631A0D19">
 <img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/95656953_1599263186901999_4337444990708875264_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=8bfeb9&_nc_ohc=IyQMS7qIQOcAX_1PKXK&_nc_ht=scontent-lax3-1.xx&oh=00_AT_5ljgxiXt87wzoWH32YRghZEgX9MgWIPug0H3bpd3Mzg&oe=6319348A">
 <iframe width="100%" height="375" src="https://www.youtube.com/embed/86vaOUEjWzM" title="Mariya Takeuchi - Plastic Love 竹内 まりや" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<img src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/131535144_1812734802221502_3824394667472542280_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=730e14&_nc_ohc=uuDVFYZari8AX_5H0pp&_nc_ht=scontent-lax3-1.xx&oh=00_AT_0fd3m0iRKvGvGqJ08N0zHOw4SyUYSmfZ_E5RfXIibjg&oe=6319373F">
+
 [My Favorite Things](https://www.youtube.com/watch?v=rqpriUFsMQQ)
 [1942 HITS ARCHIVE: Don’t Sit Under The Apple Tree - Glenn Miller (Marion-Tex-Modernaires, vocal)](https://www.youtube.com/watch?v=uSPHfbHy2Bw)
 [BEENIE MAN - LIFE STORY](https://www.youtube.com/watch?v=6Y4SP0gV1UQ)
