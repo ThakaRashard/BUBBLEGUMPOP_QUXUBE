@@ -11,8 +11,8 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
-
-
+https://thakarashard.github.io/BUBBLEGUMPOP_QUXUBE/
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5nhoVKDcCXvi3AruUFJWnv?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/895314484&color=%239c7434&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/temsbaby" title="Tems" target="_blank" style="color: #cccccc; text-decoration: none;">Tems</a> · <a href="https://soundcloud.com/temsbaby/free-mind" title="Free Mind" target="_blank" style="color: #cccccc; text-decoration: none;">Free Mind</a></div>
 <img src="https://video-images.vice.com/articles/584056ba5460bf4f35a54b57/lede/america-is-dying-slowly-resized-2.jpg">
