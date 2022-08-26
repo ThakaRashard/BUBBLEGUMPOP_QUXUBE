@@ -11,6 +11,11 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/1WnqWQcWcuQbVzgE7ecfCY?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<a href=""><img src="https://media.pitchfork.com/photos/5a09ff5c5ba42932513caa25/master/pass/CyHi%20the%20Prynce_No%20Dope%20On%20Sundays.jpg"></a>
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/79yQxmlPsMM41NH3AiVSNK?utm_source=generator" width="100%" height="290" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 https://thakarashard.github.io/BUBBLEGUMPOP_QUXUBE/
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5nhoVKDcCXvi3AruUFJWnv?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
