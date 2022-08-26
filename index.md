@@ -10,6 +10,11 @@
 
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
+
+
+<iframe width="100%" height="300" src="https://www.youtube.com/embed/97H6H3zIekc" title="How Much Affection? (1957)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen=""></iframe>
+<iframe width="100%" height="300" src="https://www.youtube.com/embed/v9iflUfYRTc" title="Developing Self-Reliance (1951)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen=""></iframe>
+
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/4Uv65Xq0mnBeR3JNc0e7I0?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/73Dlr72hp7aI3wTpp5tftn?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
