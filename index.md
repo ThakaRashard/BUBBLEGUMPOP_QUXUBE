@@ -12,6 +12,7 @@
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/4Uv65Xq0mnBeR3JNc0e7I0?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/73Dlr72hp7aI3wTpp5tftn?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ## Dear_Quxube_SERO
 Im still hyperStalked!! I cannot switch to dark mode in the youtube settings after I sign in, you can see the little ellipsis aka the 3 dots missing from where the `T` is. And Im still getting scrambled results when I try to look at many of your videos, So its hard to post you and fight the darkweb's suppression and antics... ##SHENANiGANS
