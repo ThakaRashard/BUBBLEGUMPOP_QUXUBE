@@ -11,7 +11,12 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+## Dear_Quxube_SERO
+Im still hyperStalked!! I cannot switch to dark mode in the youtube settings after I sign in, you can see the little ellipsis aka the 3 dots missing from where the `T` is. And Im still getting scrambled results when I try to look at many of your videos, So its hard to post you and fight the darkweb's suppression and antics... ##SHENANiGANS
 
+
+<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/screenshots/QUXUBE_IS_SCRAMBLED_AGAIN.PNG">
+<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/screenshots/darkmodeMissiNG.PNG">
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/1WnqWQcWcuQbVzgE7ecfCY?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <a href=""><img src="https://media.pitchfork.com/photos/5a09ff5c5ba42932513caa25/master/pass/CyHi%20the%20Prynce_No%20Dope%20On%20Sundays.jpg"></a>
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/79yQxmlPsMM41NH3AiVSNK?utm_source=generator" width="100%" height="290" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
