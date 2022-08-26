@@ -10,9 +10,8 @@
 
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/4Uv65Xq0mnBeR3JNc0e7I0?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/Ykwi_qoZ_Fo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="375" src="https://www.youtube.com/embed/JDzNiVsKWIs" title="Are You Popular? (1947)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Dear_Quxube_SERO
 Im still hyperStalked!! I cannot switch to dark mode in the youtube settings after I sign in, you can see the little ellipsis aka the 3 dots missing from where the `T` is. And Im still getting scrambled results when I try to look at many of your videos, So its hard to post you and fight the darkweb's suppression and antics... ##SHENANiGANS
@@ -20,6 +19,7 @@ Im still hyperStalked!! I cannot switch to dark mode in the youtube settings aft
 
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/screenshots/QUXUBE_IS_SCRAMBLED_AGAIN.PNG">
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_QUXUBE/master/assets/images/screenshots/darkmodeMissiNG.PNG">
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/6vkvSBJIrpdbwwrmBrER8V?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/1WnqWQcWcuQbVzgE7ecfCY?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <a href=""><img src="https://media.pitchfork.com/photos/5a09ff5c5ba42932513caa25/master/pass/CyHi%20the%20Prynce_No%20Dope%20On%20Sundays.jpg"></a>
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/79yQxmlPsMM41NH3AiVSNK?utm_source=generator" width="100%" height="290" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
