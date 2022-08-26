@@ -11,6 +11,9 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/Ykwi_qoZ_Fo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="375" src="https://www.youtube.com/embed/JDzNiVsKWIs" title="Are You Popular? (1947)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## Dear_Quxube_SERO
 Im still hyperStalked!! I cannot switch to dark mode in the youtube settings after I sign in, you can see the little ellipsis aka the 3 dots missing from where the `T` is. And Im still getting scrambled results when I try to look at many of your videos, So its hard to post you and fight the darkweb's suppression and antics... ##SHENANiGANS
 
