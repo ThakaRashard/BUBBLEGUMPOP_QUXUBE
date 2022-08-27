@@ -34,13 +34,16 @@ please let me know if either of these scrambles for you
 [Learning to look up again – controlling your smartphone addiction | Ross Sleight | TEDxLeamingtonSpa](https://www.youtube.com/watch?v=m1_QlV6XCNs)
 
 [The Dialect of Black Americans (1970)](https://www.youtube.com/watch?v=l5OYV3ewZQQ)
+
 [THE SECRET OF SELLING THE NEGRO (1954)](https://www.youtube.com/watch?v=E8PBrhFN35c)
+
 [How Smartphones Change The Way You Think | Jeff Butler | TEDxHilliard](https://www.youtube.com/watch?v=pWvSwX-jq7o&t=315s)
 [Learning to look up again – controlling your smartphone addiction | Ross Sleight | TEDxLeamingtonSpa](https://www.youtube.com/watch?v=m1_QlV6XCNs)
 [From smartphone addiction to human connection | Ritzo ten Cate | TEDxBredaFrom smartphone addiction to human connection | Ritzo ten Cate | TEDxBreda](https://www.youtube.com/watch?v=B-sJ3vJxBiY)
 [Chappelle's Show - The Niggar Family - Uncensored](https://www.youtube.com/watch?v=hLOw_SzkRQ8)
 [Chappelle's Show - Charlie Murphy's True Hollywood Stories - Rick James Pt. 1 - Uncensored](https://www.youtube.com/watch?v=ZdVAH8Z5O90)
 [Chappelle's Show - The Wayne Brady Show - Uncensored](https://www.youtube.com/watch?v=X-zSJljpKNc)
+
 <img src="https://images.footlocker.com/is/image/EBFL2/D5874700_a3?wid=2000&hei=2000&fmt=png-alpha">
 <img src="https://images.footlocker.com/is/image/EBFL2/M8338800_a4?wid=2000&hei=2000&fmt=png-alpha">
 <img src="https://images.footlocker.com/is/image/EBFL2/H8010101_a5?wid=2000&hei=2000&fmt=png-alpha">
