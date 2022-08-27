@@ -12,6 +12,19 @@
 # Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+# Dear QUE, 
+## Here is some_vintage anime 
+<img src="https://m.media-amazon.com/images/M/MV5BMGJmZmVlOTAtZmQyMS00NmUzLWJmZDUtZjM3M2MwMDdhZmQyL2ltYWdlL2ltYWdlXkEyXkFqcGdeQXVyMzM4MjM0Nzg@._V1_FMjpg_UX1000_.jpg">
+
+## I hope I dont offend you, I kept some things from Jehovahs witnesses but I personally threw watching "demonic_Movies" out of the window because I dont see anything wrong with non-exploitive folklore
+### Click_Tha_LiNKS
+[Vampire Hunter D (1985) [english-sub] [vostfr]](https://www.youtube.com/watch?v=sSr1WwuPmBs)
+[Vampire Hunter D Bloodlust English](https://www.youtube.com/watch?v=GEVHYLNf1mo)
+please let me know if either of these scrambles for you
+
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/K9HtSXwB1Fw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+
 
 <img src="https://i.discogs.com/NYONv2tIFfJic7c9aVtZ5SHgKLX0CpaAfOnFs9J9rsQ/rs:fit/g:sm/q:90/h:600/w:596/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE3NDMz/NDgtMTUyNDk5MTAy/MS0yMTI5LmpwZWc.jpeg">
 
