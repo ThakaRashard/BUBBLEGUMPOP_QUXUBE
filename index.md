@@ -1,4 +1,4 @@
-
+{% highlight python %}
  <div class="neonText">
 ## Hole to another universe 
  <ul>
@@ -7,12 +7,20 @@
     <li>4 # UNiVERSALCONTACKT####################################</li>
  </ul>
 </div> 
+{% endhighlight %}
 
-## Hole To Another Universe
+# Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
 
+<img src="https://i.discogs.com/NYONv2tIFfJic7c9aVtZ5SHgKLX0CpaAfOnFs9J9rsQ/rs:fit/g:sm/q:90/h:600/w:596/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE3NDMz/NDgtMTUyNDk5MTAy/MS0yMTI5LmpwZWc.jpeg">
 
+[BOB MARLEY and THE WAILERS - Soul Rebels LP 1970 Full Album](https://www.youtube.com/watch?v=w967mz2v_BY)
+
+[Quit social media | Dr. Cal Newport | TEDxTysons](https://www.youtube.com/watch?v=3E7hkPZ-HTk)
+[Learning to look up again – controlling your smartphone addiction | Ross Sleight | TEDxLeamingtonSpa](https://www.youtube.com/watch?v=m1_QlV6XCNs)
+
+[The Dialect of Black Americans (1970)](https://www.youtube.com/watch?v=l5OYV3ewZQQ)
 [THE SECRET OF SELLING THE NEGRO (1954)](https://www.youtube.com/watch?v=E8PBrhFN35c)
 [How Smartphones Change The Way You Think | Jeff Butler | TEDxHilliard](https://www.youtube.com/watch?v=pWvSwX-jq7o&t=315s)
 [Learning to look up again – controlling your smartphone addiction | Ross Sleight | TEDxLeamingtonSpa](https://www.youtube.com/watch?v=m1_QlV6XCNs)
@@ -20,7 +28,11 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
 [Chappelle's Show - The Niggar Family - Uncensored](https://www.youtube.com/watch?v=hLOw_SzkRQ8)
 [Chappelle's Show - Charlie Murphy's True Hollywood Stories - Rick James Pt. 1 - Uncensored](https://www.youtube.com/watch?v=ZdVAH8Z5O90)
 [Chappelle's Show - The Wayne Brady Show - Uncensored](https://www.youtube.com/watch?v=X-zSJljpKNc)
-
+<img src="https://images.footlocker.com/is/image/EBFL2/D5874700_a3?wid=2000&hei=2000&fmt=png-alpha">
+<img src="https://images.footlocker.com/is/image/EBFL2/M8338800_a4?wid=2000&hei=2000&fmt=png-alpha">
+<img src="https://images.footlocker.com/is/image/EBFL2/H8010101_a5?wid=2000&hei=2000&fmt=png-alpha">
+<img src="https://images.footlocker.com/is/image/EBFL2/C9450100_a3?wid=2000&hei=2000&fmt=png-alpha">
+<img src="https://images.footlocker.com/is/image/EBFL2/Q7783600_a4?wid=2000&hei=2000&fmt=png-alpha">
 <img src="https://is4-ssl.mzstatic.com/image/thumb/Music125/v4/8b/fd/47/8bfd476e-5572-0816-8ebc-744c8aea0dc2/34_LNT_Bonobo_4500Px.jpg/600x600bf-60.jpg">
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/75mOIzgjMsFLN5hyQlpsy8?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
  
