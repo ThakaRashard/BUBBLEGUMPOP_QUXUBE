@@ -12,6 +12,12 @@
 # Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
 
+
+[New Edition - Can You Stand The Rain (Official Music Video)](https://www.youtube.com/watch?v=7flrKMGfwjw)
+[New Edition - If It Isn't Love (Official Music Video)](https://www.youtube.com/watch?v=ReI6gvzVP0Y)
+[TOP LIST OF THE MOST USELESS IT CERTS! YO_QUE! His english may be challenging for you... Or not, the underground acting has exposed you to ppl in his demographic to the point you can communicate healthy with one of the normal ones](https://www.youtube.com/watch?v=wiB1IyLW-dc)
+
+
 # Dear QUE, 
 ## Here is some_vintage anime 
 <img src="https://m.media-amazon.com/images/M/MV5BMGJmZmVlOTAtZmQyMS00NmUzLWJmZDUtZjM3M2MwMDdhZmQyL2ltYWdlL2ltYWdlXkEyXkFqcGdeQXVyMzM4MjM0Nzg@._V1_FMjpg_UX1000_.jpg">
