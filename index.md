@@ -11,8 +11,133 @@
 
 # Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/0W-a11Tdk7Y) line!
+# Thomas Dohmke 
+We need help with censorship 
+
+## Proposition 64 and Responsible Adult Use of Marijuana
+<h1 class="header">Proposition 64 and Responsible Adult Use of Marijuana</h1>
+			
+<a href="/sapc/">SAPC Home</a> / <a href="/sapc/public/">Public</a> / Proposition 64 and Responsible Adult Use of Marijuana 
+			
 
 
+        	
+        		
+
+				<strong>Proposition 64: Adult Use of Marijuana</strong> 				
+				<br>
+				With the passage of Proposition 64 in 2016, California legalized responsible adult use of marijuana. 
+				The following details how this legislation may impact legal marijuana use, along with the efforts of the Department of Public Health (DPH) to promote the health and safety of our communities.<br>
+				<br>
+				<h4>Prop 64 Rules on Personal Use and Cultivation</h4>
+				Adults 21 years or older may:<br>
+
+				<ul>
+					<li>Possess, transport, obtain or give up to one ounce of marijuana or 8 grams of concentrated marijuana to other adults age 21 and older.</li>
+					<li>Cultivate up to six plants per residence and possess the marijuana produced by these plants. 
+					All plants and harvest more than one ounce must be kept in a locked space and not in public view. 
+					Local governments may forbid cultivation outdoors, but will allow it inside a private residence or an accessory structure that is fully enclosed and secure.  
+					</li>
+					<li>Purchase marijuana at licensed retailers.</li>
+				</ul>
+			<br>
+			You may NOT:
+			<ul>
+				<li>Consume marijuana in any public place.  				
+				</li>
+			
+				<li>Smoke or vaporize marijuana in any non-smoking area or within 1,000 feet of a school, day care or youth center while children are present, except privately at a residence.   
+				</li>
+				
+				<li>Consume marijuana or possess an "open container" of marijuana while driving or riding as a passenger in any motor vehicle, boat, or airplane. 				
+				</li>
+
+				<li>Possess or use marijuana on the grounds of a school, day care or youth center.  
+				</li>
+				
+				<li>Manufacture concentrated cannabis with a volatile solvent (except for state-licensed manufacturers).    
+				</li>
+			</ul>
+			<br>
+
+			Furthermore,
+			<ul>
+				<li>Owners may forbid the possession or use of marijuana on their property subject to normal tenant law for renters. </li>
+				<li>Employers may prohibit use of marijuana by their employees.   </li>
+				<li>Commercial marijuana cultivation, manufacturing or sales operations require a license from the Department of Cannabis Control (formally the State Bureau of Medical Cannabis Regulation).</li>
+			</ul>
+			<br>
+			
+			<strong>Minors</strong><br>
+			Individuals under 21 may not possess, use, transport, or cultivate non-medical marijuana, and are subject to a $100 fine. Minors under 18 are subject to drug counseling or community service.		
+			<br><br>
+
+			<strong>Prior offenders</strong><br>
+			If you have been convicted for a marijuana felony or other offense that has been downgraded by Prop 64, you may petition the court to have your record 
+			changed to what it would be if Prop 64 had been in effect.   	
+			<br><br>
+
+			<h4>Medical Marijuana</h4>						
+			Medical marijuana will continue to be available for those 18 years of age or older with valid doctor's recommendations. State-approved medical marijuana identification cards are available through DPH's 
+			<a href="http://publichealth.lacounty.gov/mmip/" target="_blank">Medical Marijuana Identification Program (MMIP)</a>. 
+			<br><br>
+			
+			As there are currently no adequate clinical standards and prescription guidelines for medical marijuana use, it is necessary to be mindful of the quantity and quality of marijuana you decide to use.
+			<br><br>
+
+			<h4>Responsible Adult Use</h4>	
+			While marijuana may be used responsibly, it is also a psychoactive drug that can have short and long-term consequences. 
+			How it affects your body and your health can vary widely depending on a number of individual and psycho-social-biological factors, 
+			including your age, and preexisting physical and mental health conditions. 
+  			<br><br>
+  			
+  			Furthermore, until we can implement adequate safety and quality standards and monitoring, you cannot be sure that the marijuana you buy is free of mold, pesticides, or other toxic chemicals. 
+  			<br><br>
+
+			While further research and regulations for marijuana are being developed, practice caution and care if consuming marijuana. 
+  			<br><br>
+
+			For more information on marijuana: <br>
+  			<ul>
+				<li>
+					<a target="_blank" href="https://www.drugabuse.gov/publications/drugfacts/marijuana">Marijuana Drug Facts</a>
+				</li>
+				<li>
+					<a target="_blank" href="https://www.drugabuse.gov/publications/drugfacts/marijuana-medicine">Drug Facts - Is Marijuana Medicine?</a>
+				</li>
+            </ul>
+			<br>
+
+			<h4>Department of Public Health's Role in Marijuana Regulation</h4>						
+  			<ul>
+				<li>The Department of Public Health (DPH) is working in collaboration with other county departments, cities, and community members to increase education 
+				and prevention of marijuana abuse and addiction, and reduce access to minors.</li>
+				<li>DPH promotes smoke-free policies to protect commercial housing residents from dangers of secondhand smoke.</li>
+				<li>The DPH Medical Marijuana Identification Program issues State-authorized medical marijuana identification cards.</li>
+				<li>DPH's Environmental Health Program will be working to develop quality testing systems to ensure that consumers are protected from contaminants.   </li>
+				<li>DPH's Substance Abuse Prevention and Control Division offers community-based substance use prevention and treatment services for marijuana and other substances.   </li>
+			</ul>
+			<br>
+  			For any questions please contact the LA County Office of Consumer and Business Affairs at <a target="_blank" href="mailto:Cannabis@lacounty.gov">Cannabis@lacounty.gov</a>.
+  			<br><br>
+
+  			<h4>Other Resources:</h4>
+  												
+  			<ul>
+  				<!--webbot bot="Include" U-Include="../blocks/docs-header.htm" TAG="BODY" startspan -->
+
+<li class="header">
+    <section>Subject</section>Date
+</li>
+
+<!--webbot bot="Include" i-checksum="12763" endspan -->
+  				<li><a target="_blank" href="/sapc/MDU/MDBrief/MarijuanaBrief.pdf">SAPC Data Brief - Impact of Marijuana Use</a><i class="far fa-file-pdf"></i> 07/07/22</li>
+  				<li><a target="_blank" href="/sapc/Prop64/JournalClubPHFrameworkLegalizedMJColorado.pdf">Public Health Framework of Legalized MJ in CO</a><i class="far fa-file-pdf"></i> 02/02/17</li>
+				<li><a target="_blank" href="/sapc/Prop64/MarijuanaFAQ.pdf">Environmental Health FAQ</a><i class="far fa-file-pdf"></i> 12/28/16</li>
+				<li><a target="_blank" href="https://dcba.lacounty.gov/cannabisemblemprogram/">Cannabis Compliance and Enforcement Program (CCEP)</a><i class="fas fa-external-link-alt"></i><span class="date-space"></span></li>
+				<li><a target="_blank" href="https://dcba.lacounty.gov/cannabis/">L.A. County Office of Cannabis Management</a><i class="fas fa-external-link-alt"></i><span class="date-space"></span></li>
+            </ul>
+            
 [New Edition - Can You Stand The Rain (Official Music Video)](https://www.youtube.com/watch?v=7flrKMGfwjw)
 [New Edition - If It Isn't Love (Official Music Video)](https://www.youtube.com/watch?v=ReI6gvzVP0Y)
 [TOP LIST OF THE MOST USELESS IT CERTS! YO_QUE! His english may be challenging for you... Or not, the underground acting has exposed you to ppl in his demographic to the point you can communicate healthy with one of the normal ones](https://www.youtube.com/watch?v=wiB1IyLW-dc)
