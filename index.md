@@ -15,7 +15,65 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
 We need help with censorship 
 
 ## Proposition 64 and Responsible Adult Use of Marijuana
-Proposition64andResponsibleAdultUseofMarijuanaSAPCHome/Public/Proposition64andResponsibleAdultUseofMarijuanaProposition64:AdultUseofMarijuanaWiththepassageofProposition64in2016,Californialegalizedresponsibleadultuseofmarijuana.Thefollowingdetailshowthislegislationmayimpactlegalmarijuanause,alongwiththeeffortsoftheDepartmentofPublicHealth(DPH)topromotethehealthandsafetyofourcommunities.Prop64RulesonPersonalUseandCultivationAdults21yearsoroldermay:Possess,transport,obtainorgiveuptooneounceofmarijuanaor8gramsofconcentratedmarijuanatootheradultsage21andolder.Cultivateuptosixplantsperresidenceandpossessthemarijuanaproducedbytheseplants.Allplantsandharvestmorethanoneouncemustbekeptinalockedspaceandnotinpublicview.Localgovernmentsmayforbidcultivationoutdoors,butwillallowitinsideaprivateresidenceoranaccessorystructurethatisfullyenclosedandsecure.Purchasemarijuanaatlicensedretailers.YoumayNOT:Consumemarijuanainanypublicplace.Smokeorvaporizemarijuanainanynon-smokingareaorwithin1,000feetofaschool,daycareoryouthcenterwhilechildrenarepresent,exceptprivatelyataresidence.Consumemarijuanaorpossessan"opencontainer"ofmarijuanawhiledrivingorridingasapassengerinanymotorvehicle,boat,orairplane.Possessorusemarijuanaonthegroundsofaschool,daycareoryouthcenter.Manufactureconcentratedcannabiswithavolatilesolvent(exceptforstate-licensedmanufacturers).Furthermore,Ownersmayforbidthepossessionoruseofmarijuanaontheirpropertysubjecttonormaltenantlawforrenters.Employersmayprohibituseofmarijuanabytheiremployees.Commercialmarijuanacultivation,manufacturingorsalesoperationsrequirealicensefromtheDepartmentofCannabisControl(formallytheStateBureauofMedicalCannabisRegulation).MinorsIndividualsunder21maynotpossess,use,transport,orcultivatenon-medicalmarijuana,andaresubjecttoa$100fine.Minorsunder18aresubjecttodrugcounselingorcommunityservice.PrioroffendersIfyouhavebeenconvictedforamarijuanafelonyorotheroffensethathasbeendowngradedbyProp64,youmaypetitionthecourttohaveyourrecordchangedtowhatitwouldbeifProp64hadbeenineffect.MedicalMarijuanaMedicalmarijuanawillcontinuetobeavailableforthose18yearsofageorolderwithvaliddoctor'srecommendations.State-approvedmedicalmarijuanaidentificationcardsareavailablethroughDPH'sMedicalMarijuanaIdentificationProgram(MMIP).Astherearecurrentlynoadequateclinicalstandardsandprescriptionguidelinesformedicalmarijuanause,itisnecessarytobemindfulofthequantityandqualityofmarijuanayoudecidetouse.ResponsibleAdultUseWhilemarijuanamaybeusedresponsibly,itisalsoapsychoactivedrugthatcanhaveshortandlong-termconsequences.Howitaffectsyourbodyandyourhealthcanvarywidelydependingonanumberofindividualandpsycho-social-biologicalfactors,includingyourage,andpreexistingphysicalandmentalhealthconditions.Furthermore,untilwecanimplementadequatesafetyandqualitystandardsandmonitoring,youcannotbesurethatthemarijuanayoubuyisfreeofmold,pesticides,orothertoxicchemicals.Whilefurtherresearchandregulationsformarijuanaarebeingdeveloped,practicecautionandcareifconsumingmarijuana.Formoreinformationonmarijuana:MarijuanaDrugFactsDrugFacts-IsMarijuanaMedicine?DepartmentofPublicHealth'sRoleinMarijuanaRegulationTheDepartmentofPublicHealth(DPH)isworkingincollaborationwithothercountydepartments,cities,andcommunitymemberstoincreaseeducationandpreventionofmarijuanaabuseandaddiction,andreduceaccesstominors.DPHpromotessmoke-freepoliciestoprotectcommercialhousingresidentsfromdangersofsecondhandsmoke.TheDPHMedicalMarijuanaIdentificationProgramissuesState-authorizedmedicalmarijuanaidentificationcards.DPH'sEnvironmentalHealthProgramwillbeworkingtodevelopqualitytestingsystemstoensurethatconsumersareprotectedfromcontaminants.DPH'sSubstanceAbusePreventionandControlDivisionofferscommunity-basedsubstanceusepreventionandtreatmentservicesformarijuanaandothersubstances.ForanyquestionspleasecontacttheLACountyOfficeofConsumerandBusinessAffairsatCannabis@lacounty.gov.OtherResources:SubjectDateSAPCDataBrief-ImpactofMarijuanaUse07/07/22PublicHealthFrameworkofLegalizedMJinCO02/02/17EnvironmentalHealthFAQ12/28/16CannabisComplianceandEnforcementProgram(CCEP)L.A.CountyOfficeofCannabisManagement
+[Proposition 64: Adult Use of Marijuana](http://publichealth.lacounty.gov/sapc/public/proposition64.htm)
+
+{% highlight python %}
+			Proposition 64 and Responsible Adult Use of Marijuana
+        		SAPC Home / Public / Proposition 64 and Responsible Adult Use of Marijuana 
+				Proposition 64: Adult Use of Marijuana 				
+				With the passage of Proposition 64 in 2016, California legalized responsible adult use of marijuana. 
+				The following details how this legislation may impact legal marijuana use, along with the efforts of the Department of Public Health (DPH) to promote the health and safety of our communities.
+				Prop 64 Rules on Personal Use and Cultivation
+				Adults 21 years or older may:
+					Possess, transport, obtain or give up to one ounce of marijuana or 8 grams of concentrated marijuana to other adults age 21 and older.
+					Cultivate up to six plants per residence and possess the marijuana produced by these plants. 
+					All plants and harvest more than one ounce must be kept in a locked space and not in public view. 
+					Local governments may forbid cultivation outdoors, but will allow it inside a private residence or an accessory structure that is fully enclosed and secure.  
+					Purchase marijuana at licensed retailers.
+			You may NOT:
+				Consume marijuana in any public place.  				
+				Smoke or vaporize marijuana in any non-smoking area or within 1,000 feet of a school, day care or youth center while children are present, except privately at a residence.   
+				Consume marijuana or possess an "open container" of marijuana while driving or riding as a passenger in any motor vehicle, boat, or airplane. 				
+				Possess or use marijuana on the grounds of a school, day care or youth center.  
+				Manufacture concentrated cannabis with a volatile solvent (except for state-licensed manufacturers).    
+			Furthermore,
+				Owners may forbid the possession or use of marijuana on their property subject to normal tenant law for renters. 
+				Employers may prohibit use of marijuana by their employees.   
+				Commercial marijuana cultivation, manufacturing or sales operations require a license from the Department of Cannabis Control (formally the State Bureau of Medical Cannabis Regulation).
+			Minors
+			Individuals under 21 may not possess, use, transport, or cultivate non-medical marijuana, and are subject to a $100 fine. Minors under 18 are subject to drug counseling or community service.		
+			Prior offenders
+			If you have been convicted for a marijuana felony or other offense that has been downgraded by Prop 64, you may petition the court to have your record 
+			changed to what it would be if Prop 64 had been in effect.   	
+			Medical Marijuana						
+			Medical marijuana will continue to be available for those 18 years of age or older with valid doctor's recommendations. State-approved medical marijuana identification cards are available through DPH's 
+			Medical Marijuana Identification Program (MMIP). 
+			As there are currently no adequate clinical standards and prescription guidelines for medical marijuana use, it is necessary to be mindful of the quantity and quality of marijuana you decide to use.
+			Responsible Adult Use	
+			While marijuana may be used responsibly, it is also a psychoactive drug that can have short and long-term consequences. 
+			How it affects your body and your health can vary widely depending on a number of individual and psycho-social-biological factors, 
+			including your age, and preexisting physical and mental health conditions. 
+  			Furthermore, until we can implement adequate safety and quality standards and monitoring, you cannot be sure that the marijuana you buy is free of mold, pesticides, or other toxic chemicals. 
+			While further research and regulations for marijuana are being developed, practice caution and care if consuming marijuana. 
+			For more information on marijuana: 
+					Marijuana Drug Facts
+					Drug Facts - Is Marijuana Medicine?
+			Department of Public Health's Role in Marijuana Regulation						
+				The Department of Public Health (DPH) is working in collaboration with other county departments, cities, and community members to increase education 
+				and prevention of marijuana abuse and addiction, and reduce access to minors.
+				DPH promotes smoke-free policies to protect commercial housing residents from dangers of secondhand smoke.
+				The DPH Medical Marijuana Identification Program issues State-authorized medical marijuana identification cards.
+				DPH's Environmental Health Program will be working to develop quality testing systems to ensure that consumers are protected from contaminants.   
+				DPH's Substance Abuse Prevention and Control Division offers community-based substance use prevention and treatment services for marijuana and other substances.   
+  			For any questions please contact the LA County Office of Consumer and Business Affairs at Cannabis@lacounty.gov.
+  			Other Resources:
+    SubjectDate
+  				SAPC Data Brief - Impact of Marijuana Use 07/07/22
+  				Public Health Framework of Legalized MJ in CO 02/02/17
+				Environmental Health FAQ 12/28/16
+				Cannabis Compliance and Enforcement Program (CCEP)
+				L.A. County Office of Cannabis Management
+   {% endhighlight %} 
             
 [New Edition - Can You Stand The Rain (Official Music Video)](https://www.youtube.com/watch?v=7flrKMGfwjw)
 [New Edition - If It Isn't Love (Official Music Video)](https://www.youtube.com/watch?v=ReI6gvzVP0Y)
